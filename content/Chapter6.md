@@ -6,7 +6,8 @@ type: essay
 
 ## 25th Anniversary
 
-1964 marked the 25th Anniversary of San José Catholic Church. In the 25 years since the church’s founding, the number of registered families grew from 65 to over 600 (1) (223:07/21/63) and, by 1964, over 100 children were making their First Communion every year (Photo 063) (223:04/12/64) (223:05/03/64). The first church on W. Mary Street had a seating capacity of 120 persons. In 1956, the church moved from the original building to its second building that had a seating capacity of 530 persons (120).
+The 25th Anniversary of San José Catholic Church was in 1964. In the 25 years since the church’s founding, the number of registered families grew from 65 to over 600 (1) (223:07/21/63) and, by 1964, over 100 children were making their First Communion every year (Photo 063) (223:04/12/64) (223:05/03/64). The first church on W. Mary Street had a seating capacity of 120 persons. In 1956, the church moved from the original building to its second building that had a seating capacity of 530 persons (120).
+1964 marked the 25th Anniversary of San José Catholic Church. In the 25 years since the church’s founding, the number of registered families grew from 65 to over 600 (1) (223:07/21/63) and, by 1964, over 100 children were making their First Communion every year (Photo063) (223:04/12/64) (223:05/03/64). The first church on W. Mary Street had a seating capacity of 120 persons. In 1956, the church moved from the original building to its second building that had a seating capacity of 530 persons (120).
 
 The church was now firmly established and growing. The population of South Austin was growing and he men and women who built the first church were still in their prime in 1964. They could look back with pride on their accomplishment. As was their custom, the parishioners decided to celebrate their Silver Jubilee with a fiesta.
 
@@ -22,20 +23,35 @@ By March 1964, the program had been finalized (223:03/01/64). The celebration wa
 Last minute changes were made to the program at the final planning meeting on May 4, 1964 and tasks were assigned. Members of the four main sodalities (for women, men, young women and young men), were expected to make certain the event ran smoothly.  They celebrated Mass together at 8:00AM and then began to serve the food at 11:00AM. The Anniversary Mass began at 5:00PM (60).
 
 Final committee assignments were:
+
 Sodas-Refugio Herrera, Jesús Jiménez, Ben Arismendez, Gonzalo Reyna, Alfredo Reyna, Julian Herrera and Alfredo Loera
+
 Sandwiches-Ema Arisméndez, Irene Jiménez, Eloisa Hipolito
+
 Parking- Catholic War Veterans Post 1085
+
 Argollas/ring toss- Roberto Bargas
+
 Casa Blanca- Roman Gutiérrez
+
 Raspa/snow cones-Sr. y Sra. Enrique Acosta
+
 Party Games/Bingo- Jose Rocha, Jerome Estrada, Tony Cruz, Pete Rivera, Luís Calderón, Frutoso Hipolito, Narciso Calderón, Roberto Bargas, Hernando Sanchez, Lorenzo Hernandez. These men all belonged to the Sociedad del Sagrado Corazon de Jesus.
+
 Concesion/concession booth-Celia Guerra, Macrina Tijerina
+
 Chairman of the Fiesta- Manuel Castillo
+
 Programa/Program-Luís Calderón, José Rocha, Charles Cardenas, Ben Arisméndez
+
 Recepcion/Reception- Fernando Sanchez, Ramón Samilpa, Pedro Tamayo
+
 Procesion y Microfono/Procession- José Rocha
+
 Fiesta- Jerome Estrada
+
 Invitaciones/Invitationes- Ann Guerra
+
 Sillas y Mesas/Chairs and Tables- Frutosos Hipolito, Serafin Peña, Santos Saucedo
 
 Beginning at 11:00AM, the two largest service clubs, the Guadalupanas and the Socios, served food. The Socios served a barbecue lunch from 11:00AM to 2:00PM (12) (9). Andrea Rocha (the Presidenta of the Guadalupanas) was in charge of the evening meal/cena. She was assisted by Benigna Sosa, Antonia Herrera and Terry Peña. Kitchen helpers included Paula Sanchez, Esperanza Acosta, Beatríz Calderón, Luisa Calderón, Consuelo Reyna, Elvira Reyna, Trinidad Ramírez, Felicitas Ruiz, Guadalupe Ramos, Rufina Bargas, Susie Hernandez, Celestina Gutiérrez, Terry Peña, Constancia Alba, Natalia Reyna, Luisa Garcia, Rosa Reyna, Carmen Álvarez, Rosa Pérez, Manuel Garcia, Alejandra Salazar, Macrina Tijerina and Antonio Guardiola (223:04/26/64).
@@ -102,17 +118,17 @@ The CCD Christmas pageant became an annual event. In 1993, auditions for the Chi
 
 Until about the year 2000, dances were an integral part of social life at San Jose Parish. Before a parish hall became available in 1948, the parishioners danced outside. After 1948, dances were held in the parish hall (223:07/21/68). The parish hall was often too small to handle a large crowd and dances were held in public facilities owned by the City of Austin. From the late 1940s until 1969, dances were held at the City Coliseum (223:09/10/61), the Municipal Auditorium (223:04/21/68) or at the Knights of Columbus Hall in what is now Zilker Park (223:04/07/68).
 
-### 1968
+### Dances, 1968
 During 1968, two candidates for Queen and the Catholic Youth Organization (CYO) sponsored dances at the Municipal Auditorium. All three were held in connection with the church bazaar in May. A dance in June at the Montopolis Community Center was sponsored the youth group at Dolores parish and the San Jose Activities Club sponsored a dance in July in the old San Jose parish hall.
 
 The dances featured well-known local bands. Tickets were usually priced at$2.50 to $3.50 for a couple or $2 at the door (223:04/21/68) (223:05/12/68) (223:06/16/68) (223:07/21/68).
 
-### 1969
+### Dances, 1969
 The Catholic Youth Organization regularly scheduled dances for young people with local bands. After the San José Community Center became available in October 1969, the dances were held there, usually on Friday night for young people and Saturday nights for adults. The Socios sponsored a couple of dances in November and December and the Knights sponsored a dance on New Year’s Eve (223:12/28/69).
 
 Most dances were fundraisers. The earliest dances on record were for the benefit of the annual church bazaar that took place in May. Families vied to have their daughters named the Sweetheart of the event by raising the most money. Often, the candidates held a dance at one of the City facilities featuring a well-known local band and sold tickets to the general public to raise money for their candidacy. Entry tickets often cost $3.50 per couple or $2 at the door for these large events (223:04/21/68) (223:12/28/69).
 
-### 1970
+### Dances, 1970
 
 In August 1970, Eddie Wilson opened the Armadillo World Headquarters near the corner of S. 1st Street and Barton Springs Road about two miles north of San José Church. The clientele of the Armadillo were mostly Austin hippies and its presence seemed to go unnoticed by the parishioners of San Jose. In fact, thirty-eight dances were held at the San Jose Community Center in 1971, the largest number on record.
 
@@ -122,7 +138,7 @@ In 1970, the bands that were hired to play at the San José Community Center inc
 
 Three dances were announced in December, a teen dance on Saturday, Dec. 26 from 8PM to midnight, a dance on Christmas Day with Nash Hernandez (limited to couples) and the New Year’s Eve Dance at the Community Center with Frank Nunez and the Imperials that lasted from 9PM to 1AM and cost $10 per couple. There were free set-ups and party favors at the New Year’s Eve Dance (223:12/20/70).
 
-### 1971
+### Dances, 1971
 
 A committee of Socios planned and promoted dances at the Community Center during 1971 (223:12/27/70). The money raised from the dances was donated to the church. In 1970, total income from dances sponsored by the Socios was $2,705.42 (223:01/03/71). During this period, Youth Dances were not intended to be fundraisers and the ticket prices were subsequently about half of the price of the dances sponsored by the Socios (223:02/07/71) (223:24/10/71). During the summer of 1971, Vincent Ortiz, President of the CCD program, organized dances on Saturday nights. The income from these dances was used to finance the parish CCD program (223:06/06/71).
 
@@ -130,17 +146,17 @@ Sweetheart candidates sponsored a total of seven dances at the San Jose Communit
 
 In 1971, some of the teen dances were held on Sunday afternoon (223:05/30/71). Others were on Saturday night (223:06/06/71). A dance was announced at the San Jose Community Center almost every week of the year for a total of thirty-eight dances during the year.
 
-### 1972
+### Dances, 1972
 
 Five dances were announced in the Sunday Bulletin during 1972. Miss Cindy Ortiz, a Sweetheart Candidate, sponsored one dance with Manny and the CO’s in the spring (223: 12/03/72). The Day Care Center sponsored a dance in June at the Community Center with Nash Hernandez with tickets priced at $6 at the door (223: 04/06/72). The other dances were adult dances with Rudy Ray and the Chicanos (223:11/06/72) and the Tim Torres Band (223:12/11/72). Manny and the COs returned to play at the New Year’s Eve Dance. The New Year’s Eve dance was by reservation only (223:31/12/72).
 
-### 1973
+### Dances, 1973
 
 The Catholic War Veterans and the Socos both sponsored a dance in the spring. The dance sponsored by the Veterans was at their hall at 4913 S. Congress with Manuel Castillo and Alegres Del Sur. Tickets were $1 per person (223:25/03/73). The Socios dance was a fundraiser for the church and cost $3 per person (223:22/04/73).
 
 Between early November and the end of 1973, five dances were held at the San José Community Center. The Catholic War Veterans sponsored a Thanksgiving Dance on November 10 (249:04/11/73), CCD sponsored a dance on November 22 (249:18/11/73) and another group sponsored a benefit dance for a sick parishioner. There were dances on December 15 and December 22. The final dance of the year a New Year’s Eve dance on December 31 (costing $10 per couple) (249:09/12/73). The sponsors of the dance on December 22 hired two bands (Dave Linzey and the Music Makers as well as Los Aguilillas) and sold 10 cent beer between 7:00PM and  9:00PM (249: 02/12/73).
 
-### 1974
+### Dances, 1974
 
 CCD sponsored three dances for adults in 1974. The dances were fundraisers for the CCD program (249: 02/06/74) (249: 14/07/74). Mothers of children who attended Becker Elementary Schools also  held a dance at San José to benefit programs at Becker school (249: 26/05/74). Candidates for the Bazaar Queen sponsored two dances for teenagers, one of which was labeled a Senior Citizen Benefit Dance (249:28/04/74). In addition, dances were held on November 28, December 21, December 28 and on New Year’s Eve. Altogether there were ten dances announced in the Sunday Bulletin.
 
@@ -149,11 +165,11 @@ El Duerto Carta Blanca from San Antonio (250:03/11/74) and Rueben Sanchez and Or
 
 Three dances were held in the last two weeks of December. Conjuncto Los Sandovales played at a Christmas dance on December 21 (free beer was served from 8:00PM to 9:00PM), Carta Blanca Band played at a dance on Saturday, December 28 and Tim Torres and his Orchestra played from 8:00PM to midnight on December 31 (250:08/12/74). The New Year’s Eve Dance served free beer, free setups and free party favors for $15 per couple.
 
-### 1975-1976
+### Dances, 1975-1976
 
 During 1975 and 1976, the Men’s Club, the Socios (223:30/03/75), the Catholic War Veterans (223:13/04/75) and the Catholic Youth Organization (223:18/04/76) sponsored dances. A dance was scheduled approximately once every six weeks. There were fewer dances for young people and most dances were fundraisers with tickets costing $3 or more per person. The 1976 New Year’s Eve Dance was by reservation only and cost $20 per couple (223:14/12/75).
 
-### 1975
+### Dances, 1975
 
 The Men’s Club sponsored at least four dances in 1975, the Socios sponsored at least three dances and other organizations sponsored at least four others. The first dance of the year was a teen dance in the Community Center from 8:00PM to 12:00 midnight for $1.50 per person (223:05/01/75). Two dances were held at San José Community Center on May 8 and May 15 with Los Pavos Reales and El Flaco Jimenez at popular prices (223:02/03/75). The benefit was probably for the renovation of the church (223:10/03/75).
 
@@ -161,19 +177,19 @@ The Men’s Club sponsored a dance on April 5. The following weekend, the Socios
 
 As usually, there seemed to be no favorite band. A dance was held every month with a different band. The bands included Agapito Zuniga from Corpus Christi (223:27/07/75), Nash Hernandez (223:21/09/75), Los Tremendos Gavilanes de Juan y Salomon de Monterrey (223:05/10/75) and Conjunto Chencho Flores (223:26/10/75). The New Year’s Eve Dance was by reservation only and cost $20 per couple. This included beer, set-ups, cokes and party favors. Food was sold during the dance. The music was by La Orchestra Savor and El Conjunto de Los Verinos from Austin. Tickets were sold on three consecutive days at the Community Center (223:14/12/75).
 
-### 1976
+### Dances, 1976
 
 Nine dances were held in the San Jose Community Center during the first six months of 1976. The CWV Ladies Auxiliary sponsored a dance with music by El Flaco Jimenez in early January (223:11/01/76) and then two weeks later with Nash Hernandez and his orchestra (223:25/01/76). Other bands included Los Madrugadores of Reynosa, Mexico (223:08/02/76), el Conjunto Gairio from Killeen, Texas and Los Cadettes de Linares of Nuevo Leon (223:04/04/76). Tickets were $2.50 per person (223:14/03/76)
 
 In April, the CYO sold tickets after Mass to a Disco Dance and a midnight movie, “Zulu” at the Community Center from 8:000PM to 1:00AM. Tickets were $1.50 per person (223:18/04/76).The Sunday Bulletin listed dances for May 23, May 29 and May 30 with three different bands, all in the Community Center (223:23/05/76). Jesse Duran and Los Aguilias played at a benefit dance for San José Children’s Choir in June (223:30/05/76).
 
-### 1982
+### Dances, 1982
 
 A dance during the annual Jamaica in October 1982, called the Fall Fiesta Dance and Beer Hall, sold tickets valued at $769. The dance and the beer hall at the Jamaica ranked fourth in sales of the 38 booths and activities. In comparison, the King and Queen candidates raised $2,734 (223:07/11/82). The ushers sponsored a dance on Nov. 13 at the Community Center to benefit the church. Music was by Santiago Jimenez y Su Conjunto. The previous night another dance raised money for several Mexican community organizations (223:07/11/82).
 
 After Rev. Fred Underwood, C.S.C., took charge of the parish in November 1982, significant changes were made to the dance program. Fr. Underwood made the dance program into a fundraiser for the parish. Dances that were fundraisers for the parish were called parish dances. A dance committee led by José Jiménez organized the dances (223:17/07/83). Parish dances were held every month except January and March on Saturday night from 8:00PM to 1:00AM (223:07/08/83). Tickets sold for $3 in advance from the church office and $5 at the door or more (223:24/04/83). During 1983, the income from the dances was $16,386.77. “The dances and breakfasts continue to be an important means of supplementing our Sunday collections”, said Fr. Underwood (223:20/11/83). The money was used to renovate the church (223:11/12/83). The dance on December 31 (New Year’s Eve) was also a fundraiser for the church remodeling project (223:11/12/83).
 
-### 1983
+### Dances, 1983
 
 Organizations other than the Dance Committee sponsored dances at the Community Center during 1983. In March 1983, Margaret Loera, a candidate for City Council, held a dance with the Nash Hernandez Band as a fundraiser for her campaign (223:20/03/83). In June, Maria Tera y Sensation Tropical and Grupo Poquito Mas played at a dance to benefit Mary Estrada Vasques to help pay her doctor and hospital bills. Free keg beer and snacks were available at the dance. Tickets were $5 per person (223:12/06/83).
 
@@ -185,7 +201,7 @@ Dances were held every month on Saturday from 8PM to 1AM during 1983 except Janu
 
 The profits from the final two dances, with Super Sonicos del Ritmo and Rudy Davila y Los Luceros Cuatro, were used to renovate the second church (223:04/12/83) (223:11/12/83) The income from the dances during 1983 was $16,386.77 (223:11/12/83).
 
-### 1984
+### Dances, 1984
 
 The parish dance program continued in 1984. Fr. Underwood said, “We need more workers,” and invited all parishioners to join the Dance Committee (223:08/01/84). In 1984, a parish dance was scheduled each month except during Lent (223:29/01/84) (223:26/02/84). Beer was served at the adult dances so, in June, 1984, Greg Trejo repaired a beer box to be used at the Parish Dances. The priest commented that, “Greg took a used broken down unit and rebuilt it so it runs like a new one” (223:17/06/84). A liquor store donated two cases of liquor for door prizes at the dances (223:02/09/84).
 
@@ -195,13 +211,13 @@ The bands that played at the dances included Frank Flores y Su Conjunto, Grupo I
 
 There were at least three dances at the Community Center during December. Rudy Davila and Los Luceros Castro and Grupo Alma played at a benefit dance for the CCD program (223:18/11/84) and the final dance of the year, on Monday December 31, benefited the CCD program. Johnny Degallado provided the music (223:16/12/84). Profits from the dance were $2,117.50 (223:03/02/1985).   
 
-### 1985
+### Dances, 1985
 
 In 1984 and 1985, there were 13 volunteer dance supervisors in the Dance Ministry (Progress Report of San Jose Parish for the Year 1985, Catholic Archives) (223:03/02/1985). The Dance Ministry sponsored a parish dance each month. In 1985, nineteen dances were held at the San Jose Community Center. Of the nineteen, twelve were parish dances. A parish youth group sponsored six others and the Socios sponsored two dances (223:28/07/1985) (223:01/12/1985).  
 
 The Ahuacatlán Mission group from Dolores and San José Parishes, led by Paul Gonzalez, sponsored six dances at the San Jose Community Center during 1985. The dances were fundraisers for their mission group. The first dance raised money for the Youth Bus Trip to Steubenville, Ohio (223:20/01/1985). For several years, a busload of young people from San Jose attended the event. The annual conferences in Steubenville, Ohio were precursors to what later became World Youth Day. The second youth dance was a benefit dance for the Ahuacatlán mission. The dance and other youth activities raised $1,100.00 (223: 14/04/1985). Of that, $450 was taken to the mission in Mexico, $300 was sent to Catholic Relief for Famine in Ethiopia and $350 was used to assist San Jose parishioners with large medical bills (223: 14/04/1985). Paul Gonzalez was a disc journey who called himself “the Silver Express”. He provided the music for all of the dances sponsored by the youth group in 1985 (223: 22/12/1985).
 
-### 1986
+### Dances, 1986
 
 The Dance Committee met twice during January 1986 and recommended changes to the dance schedule. They decided to sponsor a parish dance every two months, instead of every month. The type of music would alternate between conjunto and orchestra because the young people preferred orchestras. To keep the reputation of the dances at San Jose as family- and Christian-friendly (free of fights and trouble), the next dance would be for couples only. Only 200 tickets would be printed. There would be no radio or poster advertising to limit the number of outsiders at the dance (223: 12/01/1986).
 
@@ -219,7 +235,7 @@ Paul Gonzalez provided music for Back-To-School Youth Dance in September. The da
 
 The dance in November, with a band called Salaman, was specifically designed to raise money to pay for the flooring in the new church. Tickets were $12 per couple or $16 at the door (223:19/10/1986) (223:26/10/1986). The dance raised $1,141.50 (223:16/11/1986). DJ Paul Gonzales and the Silver Express provided music for a Halloween Costume Party and Dance on Friday in the Community Center. Admission was $2 in costume and $3 without a costume (223:26/10/1986). Johnny Degollado y Su Conjunto played for the San Jose New Year’s Eve Parish Dance on Wednesday, December 31. Ticket cost $20 per couple with proceeds to the church building fund (223:14/12/1986). The pastor advised, “B.Y.O.B.” (223:28/12/1986). The dance raised $1,738.35 (223:11/01/1987).
 
-### 1987
+### Dances, 1987
 
 In 1987, the dance schedule managed by the Dance Ministry was less robust than previous years. Only nine dances were announced in the Sunday Bulletin. Four of the nine were Youth Dances. Beginning in May, DJ Rudy Duran Jr. began providing the music for the Youth Dances (223:21/06/1987). The youth dances were fundraisers for the trip to Ohio (223:08/02/1987) (223:24/05/1987) and other youth activities. The parish dances were fundraisers that raised money for the church building fund (223:30/08/1987) (223:01/11/1987).
 
@@ -229,7 +245,7 @@ The Dance Committee met on January 12 in the school building (223:11/01/1987). T
 
 The Dance Committee met in early December. The greatest need was for a co-ordinator but the committee also appealed for more workers including those who help in the kitchen (223: 06/12/1987). Arthur Treviño was selected to be the new dance coordinator (223:24/01/1988).
 
-### 1988
+### Dances, 1988
 
 1988 began with a Youth Dance on January 1 with music by DJ Rudy Duran Jr. (223: 27/12/1987). The first parish dance was on January 16 with Los Viajeros del Norte (223:03/01/1988). Other youth dances were scheduled for January 22 (223: 17/01/1988) and March 4 (223: 28/02/1988). DJ Rudy Duran Jr. provided the music for both dances. Each Youth Dance averaged a net profit of $1,800.00. During the spring, the youth used some of that money to purchase the Tabernacle for the new Church and a video projector and screen and VCR for the parish hall, totaling $3,183.00. After those purchases, the Youth Account had a balance of $8,500.00. Their goal was to raise $25,000 that would be used to renovate the church (223: 28/02/1988).
 
@@ -244,7 +260,7 @@ All junior and high school-age students were expected to belong to the Youth Gro
 
 Other than the Dance Committee and the Youth Group, the only other parish organization to sponsor a dance in 1988 was the Cursillistas. They raised $1,144.85 for the church at a benefit dance in July (223:21/08/1988).             
 
-### 1989
+### Dances, 1989
 
 The first dance of 1989 was a Youth Dance on Friday night, January 20 with Rudy Duran, Jr. and Delightful Sounds. The dance was well supervised by adult chaperones and security (223:30/04/89). Parents were asked to pick-up students at 11:30PM (223:22/01/1989). The next day, Saturday, January 21, the CWV Ladies Auxiliary held their 24th Anniversary Dance in the San Jose Parish Hall  (223:22/01/1989). The profits from the beer and kitchen concession were donated $600 to the church (223:05/02/89). The Youth Dance on the previous Friday made a profit of $724.51 but the money was used for the Youth Program (223:29/01/89).
 
@@ -258,7 +274,7 @@ The adult Dance Committee sponsored five parish dances in 1989 and the usher’s
 
 The final dances of the year were an Adult Christmas Dance in the parish hall on Saturday, December 23, with “Johnny and the New Sensations” (223:03/12/1989) and the adult New Year’s Eve Dance on Sunday, December 31. The tickets cost $20 per couple presale or $25 at the door. The price includes party favors and breakfast. Music was provided by “Alma Tejana” (223:17/12/1989). Income was $146 (223:31/12/1989).
 
-### 1990
+### Dances, 1990
 
 During 1990, at least twenty-five dances were staged at the San Jose Community Center. The Youth Dance Committee (headed by Leticia Casarez and Cindy Martinez) sponsored fifteen youth dances. The Knights of Columbus sponsored by five adult dances and the ushers sponsored two. The adult Dance Committee sponsored one parish dance.
 
@@ -278,7 +294,7 @@ In July, the Suave Youth group sponsored a Mini Truck Show on Sunday in the park
 
 In September, San Jose and St. Ignatius parishes jointly sponsored a Youth Dance for the Homeless at St. Ignatius Hall on Saturday, 8:00PM to 12:30PM with DJ Martin, “The Hitman”. The entry price was reduced by $1 if a person donated one can of food (223:09/09/1990). Income from the dance was $970 and income from the kitchen at the dance was $92.65. This was income for the church (223:23/09/1990).
 
-### 1991
+### Dances, 1991
 
 During December 1990, Moses Saldana polled older adults to measure interest in a Mexican-American Dance Club for people over 50 years of age (223: 16/12/1990). In February 1991, he organized an Adult Dance Club that met on Wednesday at 7:30PM in the Parish Hall (223:03/02/1991). The dance club was for people 40 years of age and over (223:17/02/1991).
 
@@ -292,7 +308,7 @@ The Knights of Columbus also sponsored dances on Mother’s Day (223:05/05/1991)
 
 Other dances during 1991 included a dance in July for adults aged 40 years or older (223:30/06/1991), a dance during the Jamaica (223:28/07/1991) and a parish dance at the Flamingo Ballroom to welcome home Desert Storm soldiers. The dance was sponsored by San Jose Parish and the income was used for the parish youth program (223:04/08/1991). Other Youth Dances were in April, May and December (223:15/12/1991). In 1991, the City of Austin adopted the slogan; “Live Music Capital of the World” after it was discovered that Austin had more live music venues per capita than anywhere else in the US.
 
-### 1992
+### Dances, 1992
 
 The adult Dance Committee stopped sponsoring parish dances after 1991. In 1992, the Knights of Columbus sponsored two dances for adults and the Catholic War Veterans sponsored one adult dance. The Youth Dance Committee sponsored two dances and the Boy Scouts sponsored one dance for teenagers. In August, the pastor said that, “Since we are no longer going to have adult dances, we renovated the room where beer used to be sold at dances” (223:23/08/1992).
 
@@ -300,7 +316,7 @@ The Knights of Columbus sponsored a Pre-Mother’s Day Dance on May 9 from 9:00P
 
 The three youth dances in June, July and October were sponsored by the Explorers of San Jose (223:14/06/1992 or the parish. The DJs were Turntable Records and Gabe Mojica’s Latin Express (223:12/07/1992) (223:19/07/1992). The Halloween Dance included a “Costume Contest- no devils or witches allowed” (223:25/10/1992).
 
-### 1993
+### Dances, 1993
 
 Only five dances were announced in the San Jose Sunday Bulletin during 1993. Apparently both the adult and youth Dance Committees had disbanded. Adult dances were sponsored by the Knights of Columbus, the Ushers or the Catholic War Veterans.
 
@@ -324,6 +340,8 @@ The six Mexican-American parishes of Austin celebrated Cinco De Mayo in 1984 wit
 
 Communal meals are an essential element of community life. Like all intentional communities, San José Parish has a long tradition of sharing food. Food was shared at Jamaicas, bazaars, fiestas and other events sponsored by the parish. San José also has a long tradition of serving breakfasts, lunches and take-out food as fundraisers for the parish, its buildings or its sodalities. This article describes dinners, picnics and lawn parties that are not described elsewhere.
 
+### A dinner program replaced in May Bazaar
+
 In February 1983, the Bazaar Committee decided to discontinue the May bazaars that had been held at the City Auditorium since the 1950s. The City imposed new policies that made events at the auditorium too expensive and too restrictive. Monthly dances and dinners at the Community Center replaced the income from the May Bazaar. Dances would be held monthly (except during Lent) and organizations, choirs and individuals would be recruited to sell tickets based on the model used for the February 5, 1983 pre-Lent dance. The first Parish Dinner under the new policy would be a Mexican dinner on March 20th to celebrate St. Joseph’s Day.
 
 The parish had been preparing and serving food for many years. In April 1979, the parish sponsored a spaghetti dinner that accompanied a talent show (223:April 1979 Calendar). The 1981 parish Christmas dinner was a covered dish supper (223:13/12/1981). When food was served at the coronation of a new pastor or the anniversary of a priest’s ordination, everyone was invited to bring a covered dish to share (223:18/06/1989). The abandonment of the May Bazaar in the City Auditorium meant that dinners in the Community Center would be more frequent and would be fundraisers for the parish.  
@@ -333,6 +351,8 @@ The first event under the new plan, in March 1983, was a meal of Mexican food to
 Gabe and Rosie Villalobos and crew prepared a fajita dinner in July that raised $254.33 (223:03/07/83). Joe and Alice Maldonado sold snow cones after the 10:30AM and 12:00 AM Masses. The sales from the snow cones raised $52.75 on a Sunday in June when there was no CCD classes and $100 when school was in session. The income was listed in the church bulletin and counted as parish income (meaning it was not a fundraiser for an parish organization) (223:03/07/83) (223:28/08/83).
 
 Joe and Frances Treviño served a Brisket Dinner on a Sunday in July and raised $139.75 (223:17/07/83). Ruben and Mary Molina served an enchilada dinner on another Sunday in July for $2.50 per plate (223:17/07/83). Breakfast was served after the first two Sunday Masses and dinner after the 3rd and 4th Sunday Mass (223:17/07/83). The income from the dinners in 1983 was often $250 per week and was usually higher than the income from the breakfasts (223:07/08/83).
+
+### Breakfast was served in the parish hall
 
 However, for some reason, the dinners were discontinued in August 1983. Instead breakfast was served after the first three Masses and snow cones after the last Sunday Mass (223:14/08/83). The next Sunday Mexican Sweet Bread was added to the breakfast menu and was also sold to go (223:28/08/83).
 
@@ -352,9 +372,13 @@ The annual parish picnic in August 1988 was at Garrison Park (behind Crockett Hi
 
 The 1988 annual Thanksgiving dinner was served in the parish hall on Sunday, November 6 from 11:00AM to 1:00PM. Paul Samaniego and Ray Cortez sold tickets that were still priced at $3.50. The proceeds of $1,649.10 were for the church (223:30/10/1988) (223:13/11/1988).
 
+### Lunch was sold in 1989
+
 In January 1989, when Frances Treviño was in charge of the breakfast program, the breakfast crews started serving lunch after the 11:00AM and 12:30PM Masses. There was a different “specialty” served every Sunday (223:22/01/89). Breakfast was still served after the first two Masses (223:18/06/1989). The new lunch program continued all year. In November, Jim Sanchez sold a brisket plate with rice and beans after 11:00AM Mass for $3.50 (223:05/11/1989).
 
 The annual Thanksgiving Dinner in 1989 was served from 11:00AM to 2:00PM in the parish hall for $3.50 not including drink or desert. The church office sold the tickets (223:05/11/1989). María Galvan and her crew cooked and served the meal. Others donated turkeys. The $1,402.00 raised was given to the church to pay down the debt (223:26/11/1989).
+
+### A fish fry began in 1991
 
 A barbecue plate was sold in the parish hall from 11:00AM until 12:30PM on Sunday February 24, 1991 (223:24/02/1991). On the evening of the previous Friday, February 22 1991, a catfish, French fries, coleslaw and hush puppy plate was sold for $3 as a fundraiser to benefit the youth programs (223:17/02/1991) (223:05/19/1991). In 1991 Lent began on February 13. The idea of selling fish on Fridays during Lent caught on and on March 10 the sale was extended to every Friday during Lent from noon-2:00PM and 5:00PM to 8:30PM (223:10/03/1991).
 
@@ -420,43 +444,43 @@ The program began at 9:00PM and the termination of Jamaica that included booths 
 
 A Sunday Bulletin was not printed until December 1960 so little is known about San José Jamaicas before that date. The first such event that is mentioned in the Sunday Bulletin took place on the evening of Sunday, August 27, 1961 (223:08/27/61). The event was called the Summer School Jamaica and netted $56.68 (223:09/10/61). A similar event took place a month later (223:09/17/61). The stated purpose of the two events was to raise money for the Church.
 
-### 1966
+### 1966 Jamaica
 
 In 1966, the Society of the Sacred Heart of Jesus (the Socios) sponsored a fundraising event in the fall of the year. The 1966 Jamaica included a Court of Honor consisting of two young ladies who represented Spain and Mexico and another young lady who was called the Festival Queen. Several candidates vied to be the Festival Queen by selling raffle tickets. The candidate whose sponsors sold the most tickets was crowned the Festival Queen (223:07/10/66).
 
-### 1967
+### 1967 Jamaica
 
 In 1967, the Guadalupanas sponsored the Queen Contest or Concurso de la Reina. Once again, the candidates competed for the title by selling raffle tickets. Competition between the groups sponsoring Queen candidates was fierce and the candidates sold tickets worth $2,453.05. The successfully candidate was crowned at 7:00PM in the middle of the Farewell Program for Fr. Joseph Houser. The Queen was Rita Ramírez. Her court was Renee Shipp, Nancy Castruita and Agapita Orta (223:07/02/67).
 
-### 1968
+### 1968 Jamaica
 
 The following year, 1968, the fall event was sponsored by a committee headed by Roy Perales. The event took place on a Sunday evening in July. Various church organizations built and manned booths. The Guadalupanas sponsored and manned five booths, the Activities Club sponsored three booths and the PTA sponsored five booths (223:07/21/68).
 
-### 1970
+### 1970 Jamaica
 
 In 1970, the fall event was a carnival at Gillis Park that began at 6:00PM. The carnival included a dance, a bingo game, children’s games, food and coronation of a queen (223: 01/26/70). In 1971, the event returned to the church campus and was organized by the Guadalupanas. This Jamaica marked the 30-year anniversary celebration of the Guadalupanas (249: 21/07/74). The event was originally planned to take place on Sunday at the San Jose Community Center. It began at 10:00AM and ended at 10:00PM. Bingo games began at 8:00PM and ended at 10:00PM. Crowning of the Little Queen was originally scheduled at take place after the conclusion of bingo at 10:00PM (223:07/18/71). The schedule was changed to have the crowning of the Queen take place at 8:00PM. The bingo games began at 5:00PM and ended at 8:00PM.
 
-### 1971
+### 1971 Jamaica
 
 The crowning of the Queen was a central feature of the 1971 Jamaica.  There were four queen candidates vying for the position (223:06/20/71). On Sunday, July 11; Saturday, July 17 and Sunday, July 18, three of the four candidates for Queen sponsored dances at the Community Center to benefit their candidacy. These were dances with an entry fees ranging from $1.50 to $5 per person with music provided by local bands (223:07/11/71). One of the candidates also sold cakes after 10:00AM and 12:00AM Mass (223:07/18/71).
 
-### 1974
+### 1974 Jamaica
 
 In 1974, the event was a two-day event at the end of September. On both days, the event began in the early afternoon and ended with a dance in the Community Center. Tamale dinners, drinks, hot corn and games were available all afternoon (223:09/15/74).
 
-### 1978
+### 1978 Jamaica
 
 In 1978, Mrs. Frances Treviño, President of the Guadalupanas, was in charge of the Jamaica (223:08/10/78). The Jamaica took place on Sunday, November 2 on the church grounds. It was preceded by a Thanksgiving turkey dinner that started at 11:00AM and ended at 2:00PM (223:29/10/78). The Jamaica began at 1:00PM (223:11/11/78).
 
 Organizations that sponsored booths in 1978 included the Ladies Auxiliary of the Catholic War Veterans, the Socios, the Guadalupanas and the 10:00AM Choir. Of the seventeen booths, at least eight sold food. The net proceeds from the turkey dinner were $518 (223:26/11/78). The largest moneymaker from the Jamaica was the raffle (which netted $1,220) and a cake walk (that netted $225) (223:19/11/78).
 
-### 1981
+### 1981 Jamaica
 
 By 1981, the Jamaica King and Queen Contest had grown so popular that the pastor, Rev. John Korcsmar, issued rules to govern the contest (223:06/09/1981). The candidates should be aged 5 to 7. Each organization could sponsor only one candidate, either for King or Queen, and dates were assigned to the different organizations to use parish facilities to raise funds for their candidates (223:27/09/1981). The Socios, Catholic Adult Organization, Catholic Youth Organization, the Mission Group and CCD all sponsored candidates (223:20/09/1981).
 
 The Jamaica was scheduled for Sunday, November 1. The twenty-four booths included five that were operated by CCD, three operated by the Catholic Youth Organization and two operated by the Socios. The Catholic Adult Organization, the 10:00AM Choir and the staff of the San Jose Community Center each operated one booth. Romana Salazar sold religious articles and Lucy Polanco sold beef tacos (223: 01/11/1981) (223: 08/11/1981).
 
-### 1982
+### 1982 Jamaica
 
 Planning for the 1982 Fall Fiesta was underway in July 1982. The event was scheduled for Sunday, October 17 and would benefit the CCD program (223:18/07/82). 50 people were needed to help with the booths and planning (223:08/08/82). The twelve to fifteen persons on the planning committee were in charge of publicity, beer sales, the King and Queen contest, tickets, booths and the dances (223:22/08/82) (223:31/10/82). The kick-off event was a dance at the Community Center on August 28 (223:22/08/82).
 
@@ -466,7 +490,7 @@ The Jamaica included a three-day carnival at 507 Havana Street, across from Daws
 
 Total Income from the 1982 Jamaica was $11,481, total expenses were $3,954 and the net profit was $7,527 (223:31/10/82). The total sales from the booths were $7,967. This figure included sales of beer $1,103; wine coolers $768; fajitas $859; hamburgers $800; ring toss $337; supper at the Community Center $306 and tamales $273 (223:31/10/82). The Fall Fiesta Dance and beer sales at the dance netted $769 and the Queen and King Candidates raised a total of $2,734 (223:17/10/82).                     
 
-### 1983
+### 1983 Jamaica
 
 The first planning meeting for the Fall Fiesta of 1983 was in June (223:26/06/83). In early 1983, the decision had been made to discontinue the annual spring Bazaar that was held at the City Auditorium in May. The May Bazaar would be replaced by monthly dances and dinners (223:20/02/83). This decision meant that the annual fall Jamaica became the primary fundraising event of the year. The result was a much larger event. However, it is worth noting that breakfast income for 1983 through November was $8,671.20 and income from dances in 1983 through November was $16,386.77 (Progress Report of San Jose Parish, November 1982-1983, Catholic Archives). These two ministries (the breakfast groups and the dance community) raised more money than did the Jamaica.
 
@@ -481,7 +505,7 @@ The pastor, Rev. Fred Underwood, C.S.C. wrote the following, “Fiesta of San Jo
 The proceeds from this Fiesta come at a most opportune and critical time. We need the money not only to pay some immediate bills on the expansion and remodeling of the church, but also to help finance our CCD program.
 For details concerning the proceeds of the Fiesta, please see the insert in the bulletin” (223:09/09/83).
 
-### 1984
+### 1984 Jamaica
 
 The 1984 Fall Fiesta was even larger than that of 1983. A total of about 420 volunteers built and operated about sixty-nine booths (223:29/07/84) and five orchestras provided music (223:14/10/84). The net profit was $22,371.57. By comparison, the breakfast income for 1984 was $15,289.41 and the dance net income for 1984 was $19,000.88 (Progress Report of San Jose Parish for the Year of 1984, Catholic Archives). The parish realized a profit of $56,500 from the breakfasts, dances and the Jamaica at a time when the annual Sunday Collections amounted to about $150,000 (223:12/02/84).
 
@@ -495,23 +519,23 @@ The Jamaica was scheduled for Saturday, October 6 (223:29/07/84). 25,000 door pr
 
 In 1984, when the Fall Fiesta had a net profit of $22,371.57, breakfast income was $15,289.41 and dance net income was $19,000.88 (Progress Report of San Jose Parish for the Year of 1984, Catholic Archives). In December, the pastor announced that, “Raffles are illegal in the State of Texas. We have been advised to suspend such activities until the State Attorney General and Legislature deal with the matter” (223:02/12/84). San Jose had suspended bingo games and raffles after a confrontation with Madalyn Murray O’Hair in 1977 (251).
 
-### 1985
+### 1985 Jamaica
 
 The first Fiesta Planning Meeting for the 1985 Jamaica was called for Monday, June 24 (223: 23/06/1985). A second meeting was called for July 17. The chairman in 1985 was Manuel Navarro. The Parish Fiesta was scheduled for Saturday, September 14, on the church grounds from 11:00AM until 10:00PM. A sign-up sheet was distributed at Mass to encourage parishioners to help (223:14/07/1985) but some booths were still looking for helpers in August (223:11/08/1985). There were chairpersons for booths, publicity, program and entertainment (223:15/09/1985).
 
 On the date of the fiesta, it rained for three hours in the afternoon (223:22/09/1985). Because of the rain, the Fall Fiesta for 1985 had a net profit of $13,603.40. In addition, no raffle tickets were sold because raffles had been declared to be illegal. In comparison, breakfast income for 1985 was $12,107.06 and dance net income for 1985 was $12,470.55 (Progress Report of San Jose Parish for the Year 1985, Catholic Archives).
 
-### 1986
+### 1986 Jamaica
 
 The annual Fiesta of 1986 that was scheduled for Saturday, October 11, was cancelled because construction of the new church occupied, “everyone’s time and also there would be no parking space” (223:08/06/1986). A new church was being constructed where the school compound had been previously and the parking lot was used as a staging area for the construction. After the new church was built, the bulk of the Jamaica booths were moved up the hill to a space behind the San Jose School building.
 
-### 1987
+### 1987 Jamaica
 
 A list of available booths for the annual 1987 San Jose Jamaica was placed as an insert into the Sunday Bulletin on June 14 to encourage parishioners to sponsor a booth. A parish-wide meeting was called for June 24 for persons interested in helping. The Jamaica was scheduled for Saturday, October 3 from 10:00AM until 6:00PM (223:21/06/1987).
 
 The pastor reported a successful Jamaica with many booths and happy people. However, he also announced that he would have to borrow $40,000 to make the first payment on the new church (223:11/10/1987). It appears that the 1987 Jamaica netted $12,500. This amount was added to the building fund. The fund had a balance of $52,500.000 on October 18 (223:18/10/1987).
 
-### 1988
+### 1988 Jamaica
 
 The Jamaica Committee met in the parish hall for the first time on August 15 (223:14/08/1988). The Jamaica was scheduled for Saturday, October 1, 10:00AM to 10:00PM. A new feature in 1988 was a raffle. Raffles had been suspended after 1977 but had been reinstated by the State Legislature. The proceeds from the raffle were used to make the payment on the new church that was due October 15.
 
@@ -519,7 +543,7 @@ Each registered parishioner received a book of tickets worth $10. Someone would 
 
 At the end of September, the Jamaica Committee called for food booth volunteers. The financial report for the Jamaica was distributed as an insert to the October 16, 1988 Sunday Bulletin (223:16/10/1988). The Jamaica Committee later tried to sell left over Jamaica Tee-Shirts through the church office (223:04/12/1988).
 
-### 1989
+### 1989 Jamaica
 
 The pastor called a parish -wide meeting on Sunday, February 5, Sunday to discuss the 50th Jamaica. The coordinators for the Jamaica were elected from those attending the meeting (223:29/01/89). The chairpersons Manuel Navarro and Santos Martinez met again on March 5 (223:26/02/89). The committee was looking for people interested in managing booths (223:19/03/89). The Jamaica was held on October 7.
 
@@ -527,7 +551,7 @@ The first prize for the drawing was a used Cadillac Seville. Other prizes for th
 
 The 50th Anniversary Jamaica was on Saturday in the San Jose parish parking lot. (223:01/10/1989) (223:15/10/1989). The persons who sold the most raffle tickets were Tiburcio Vasquez ($604), Linda Hernandez ($510) and John Ramos (($371). All adult Jamaica volunteers were invited to a dance with free beer and snacks on Saturday, November 11. Youth volunteers got a free ticket to the November youth dance (223:05/11/1989).
 
-### 1990
+### 1990 Jamaica
 
 Sandra Guardiola was in charge of the 1990 San Jose Jamaica t-shirt design. The theme was, “The San Jose Family, growing through love”. Entries for the t-shirt design contest were accepted until Monday, June 11 (223:03/06/1990). Joe Moreno submitted the winning design and won $25 (223:08/07/1990). Tee-shirts were sold after all masses outside the church entrance beginning in July (223:29/07/1990).
 
@@ -538,7 +562,7 @@ Ester Terrazas, who was in charge of booths for the Jamaica committee (223:08/07
 
 Volunteers were also needed to help build booths for the Jamaica. The booths were assembled from lumber, usually used in previous years and then stored between events. The work on the booths began on September 9. The Jamaica was on the church grounds beginning Friday evening October 5 at 5:30PM and all day Saturday from 10AM until 10PM on October 6 (223:15/07/1990). The winners of the raffle were announced on October 14 (223:14/10/1990). The net profit from the Jamaica was $38,185, the highest figure in years. A detailed report of the Jamaica was available from the church office (223:18/11/1990).
 
-### 1991
+### 1991 Jamaica
 
 In 1991, the Jamaica Committee was Pete Sepeda; Esther Terrazas, Secretary; Pete and Connie Guerrero, Garage Sale; Manuel Navarro, Spokesman; Debbie Navarro, Publicity. Donors were Deacon and Mrs. Oswaldo Nira, Catholic War Veterans, Ladies Auxiliary of CWV, Mrs. Rose Uríegas, Rudy and Linda Pérez and Kenneth and Ana Rodríguez (223:20/10/1991).
 
@@ -553,7 +577,7 @@ The pastor urged parishioners to donate items for the garage sale, bingo and auc
 The Jamaica was scheduled for October 5, 1991, 10AM to 10PM. (223:01/09/1991).
 Daily Mass was suspended on the Saturday of the Jamaica but confessions were heard as usual. The church was closed during the Jamaica but the picture of the Sacred Heart shed was open from 9AM to 10PM (223:29/09/1991) (223:29/09/1991). The net profit from the Jamaica was $50,579.00. The money was used to pay down the short term note of $543,384.29 (223:20/10/1991). The Jamaica fund was used to make up the operating deficit (223:20/10/1991).
 
-### 1992
+### 1992 Jamaica
 
 The Jamaica date was set for October 3, the first Saturday in October 1992 (223:13/09/1992). The pastor announced in August that the proceeds from the Jamaica would go towards the Youth Program. He said that, in 1991, the Youth Program cost the parish $120,000 each year (223:09/08/1992).
 
@@ -563,7 +587,7 @@ Those who sold the most tickets won prizes (CD player, bicycle or AM/FM Radio wi
 
 During the Jamaica, the 7:00PM Mass was cancelled and the church was closed except for confessions from 4:00PM until 5:30PM. The Jamaica volunteers were acknowledged at the 12:30PM Mass on October 18 (223:18/10/1992). The pastor said the Jamaica was a big success (223:11/10/1992).
 
-### 1993
+### 1993 Jamaica
 
 The 1993 Jamaica Committee was Robert Menchaca, Chairman; Rufus Dávila, 1st Vice Chair; Rosie Castillo 2nd Vice Chair; Vincente and Corrine Rocha, Treasurer; Esther Terrazes, Secretary; Robert and Margret Reyna, Food Coordinators; Annie Estrada, Game Coordinator; Yvonne Reyna, Reina Coordinator; Avelia (Billie) T. Menchaca, Prize Coordinator; Victor Balderas, Entertainment Coordinator; Sylvia Finch, Tee-Shirt Coordinator; Tony DeLeon, T-Shirt Coordinator; Linda Govea, Committee Member; Margaret Uriegas, Committee Member; Renee Rivera, Committee Member (223:23/05/1993). Robert Reyna was in charge of food booths and Annie Estrada was in charge of game booths (223:08/08/1993).
 
@@ -572,32 +596,32 @@ The Jamaica Committee started fundraising with bake sales on May 30 and June 13 
 Girls, aged 14-17, who wanted to compete to raise money for the church, were asked to contact Yvonne Reyna, the Reina coordinator. The Jamaica Queen candidates were Joann Olivares, Erica Ortiz, Angelica Maria Ramos and Anna Sabana (223:15/08/1993) (239) (223:17/10/1993).
 The 1993 San Jose Jamaica was held on the church grounds between the brick school building and the old convent building. There were twenty-nine game booths, seventeen food booths, seven other booths and Bingo in the hall. Music was provided by eleven bands or musical groups.
 
-### 2001
+### 2001 Jamaica
 
 The 2001 Jamaica Committee Chair was Gonzalo Martinez with Christina Miranda, the Finance Chair. There were 15 persons on the committee were Juan Rodriguez Finance; José Tapia Set-up; Raul Espinoza Food; Cecil Freitas Utilities; Irma Prado Games Coordinator; Elisa Cortinas Vice-Chair; Jose and Lucia Mendez Business relations; Theresa Stockdale T-shirts; David Moreno Set-up; Nina Cardenas Secretary; Prescilla Garza and Melinda Robledo (219). The Jamaica was on Saturday, October 6.
 
-### 2008
+### 2008 Jamaica
 
 The total sales of the 2008 annual San Jose Jamaica were $103,863 with expenses of $48,202 and a net profit of $55,661. Sales of food totaled $33,326; of Games $15,271 and of Raffle tickets $40,540 (223).
 
-### 2009
+### 2009 Jamaica
 
 The best food booth decoration prizewinners were Knights of Columbus Ladies Auxiliary, Guadalupana’s Plant booth and the Knights of Columbus. Twenty-four raffle prizes were raffled off. It rained all day. Total sales were $81,052 with expenses of $43,308 for a Net Profit of $37,744. Total sales of food and games was $27,311; of Raffle tickets $40,545 (223)
 
-### 2010
+### 2010 Jamaica
 
 The best food booth decoration prizewinners were MFC (Movemiento Familiar Christiana), Guadalupanas and Sagrado Corazón. There were 30 Jamaica Raffle prizewinners. Total sales were $115,823 with expenses of $38,544 for a net profit of $77,278. Sales of food were $38,547; Sales of Game booth were $13,936; Sales of Raffle Tickets $44,495 (223). The annual Jamaica was on October 2.
 
-### 2011
+### 2011 Jamaica
 
 The best food booth decoration prizewinners were MFC (Movemiento Familiar Christiana), Guadalupanas and Knights of Columbus. There were 26 Jamaica Raffle prizewinners. Total food sales were $35,000; game booth sales were $13,367 and sales of raffle tickets totaled $45,541. Total sales were $112,819 with expenses of $41,733 for a net profit of $71,085 (223).
 People on the Jamaica Committee included Eddie and Christine Orozco, Gilbert and Tina Rodriguez, Gloria and Victor Cruz, Jesse Tristan, Anita Pérez and David & Linda H. Urban.
 
-### 2012
+### 2012 Jamaica
 
 The best food booth decoration prizewinners were MFC (Movemiento Familiar Christiana), Guadalupanas and Sodas and Water. There were 29 Jamaica Raffle prizewinners. Food Sales total about $34,000; Games Sales were $14,503; Sales of Raffle Tickets amounted to $42,586 for a total income of $111,441. The expenses were $41,136 for a Net Profit of $70,305. The weather was cool and many children attended (223). The Jamaica was on October 6.
 
-### 2013
+### 2013 Jamaica
 
 The best food booth decoration prizewinners were Sodas and Water, Guadalupanas, Knights of Columbus/Sagrado Corazón and Auction. There were 32 Jamaica Raffle prizewinners. Food Sales were about $40,000; Game Sales were $11,149; Raffle Ticket Sales were $45,726 and the total sales were $114,171. The expenses were $44,373 for a Net Profit of $69,798 (223).
 
@@ -607,11 +631,15 @@ The name of a new Roman Catholic Church is selected by the pastor, subject to th
 
 Few records of events at San José Parish exist prior to 1960 when the Sunday Bulletin began to be published. However, it is probable that the Feast Day of San José the Husband of Mary was celebrated as an annual event by the parish. On Sunday, March 19, 1961, the Feast of San José was celebrated with General Communion of all Church Organizations. The Mass began with a procession of the Sodalities, Veterans, Scouts, Servers and children representing the Holy Family (223:03/19/61).
 
+### St. Joseph the Husband of Mary
+
 On Tuesday, March 19, 1961 the Feast of the parish’s Patron, San José began at 7:30PM with a procession of all sodalities followed by Mass (223:03/17/63). In those days, all parish sodalities had banners that they carried in processions and displayed during meetings and ceremonies. The procession wound through the streets of the neighborhood surrounding the church and then entered the church.
 
 On Thursday, March 19, 1964, the procession began at 7:30PM followed by Rosary and a benediction (223:03/08/64). In 1966, the celebration fell on a Friday. Because the event fell on a weekend, the decision was made to celebrate the Feast of San José with a traditional Mexican fiesta. Since the fiesta took place during Lent, the pastor obtained an exemption from the requirement to abstain from meat on Fridays during Lent. He announced that, “All in San José Parish may eat meat that day” (223:03/13/66).
 
 In 1970, the Feast of St. Joseph was on a Thursday. The Liturgical Committee of Parish Council sponsored a festival (213). The celebration was modest and consisted of Mass at 7:00PM following by a social event with refreshments in the church hall (223:03/15/70). In 1971, the Feast fell on Friday but no fiesta was scheduled perhaps because the pastor could not exempt the parishioners from the meatless Friday requirement. The celebration consisted of a Mass in honor of Saint Joseph (223:03/14/71).
+
+### St. Joseph the Worker
 
 St. Joseph’s Day in 1976 was a day of prayer for the universal church (223:14/03/76). The Sunday Bulletin announced that the Catholic Church celebrates Labor Day on May 1 by emphasizing the Feast of St. Joseph, the Worker (223:25/04/76). In 1979, a special Mass was said at 5:30PM for St. Joseph on Sunday, March 18. The Mass was followed by a pot-luck covered dish dinner in the Community Center. Each family was asked to bring a dish (223:11/03/79).
 
@@ -634,6 +662,8 @@ The name and image of the Virgin of Guadalupe were unifying national symbols for
 Throughout Mexico, Mañanitas para la Virgen is song at daybreak on the morning of December 12 to commemorate the Virgen’s appearance to San Juan Diego Cuauhtlatoazin in the very early hours of Tuesday, December 12, 1531. A more elaborate celebration takes place at the Basilica in Mexico City. During the night between the 11th and 12th of December, Mañanitas are sung in the Basilica of Our Lady of Guadalupe in Mexico City to the honor of Our Lady of Guadalupe. The singers are Mexico’s most famous and popular artists. The service is broadcast nationally beginning at 11:00PM during the night of December 11(en.wikipedia.org).
 
 It is not known when the Mañanitas were first song at San José Church. The first mention of the celebration at San José Church records dates from 1963 when December 12 fell on a Thursday. According the Sunday Bulletin, “the two Sociedades (the Guadalupanas and the Socios del Sagrado Corazón de Jesús) will sing Mañanitas at 5:30AM, followed by Mass at 6:15AM” (223:12/22/63). Mexicans living in South Austin likely sang the Mañanitas even before San José Church was founded in 1939.
+
+### Origins
 
 The celebration always begins before sunrise and begins with the singing of a song that originated in Zacatecas in 1896, called “las mañanitas”. The following is the most common version of the lyrics of the song.
 
@@ -666,6 +696,8 @@ In 2001, when December 12 fell on Wednesday, the song service began at 5:00AM an
 
 This format was followed for many years beginning before 1988 with Victor Balderas and the 8:00AM Sunday Mass choir providing the accompaniment. Although all of the songs were well-known to Mexican Catholics, the words to the songs were projected onto a screen placed behind the Altar because no printed song books were available.  
 
+### The Guadalupanas sponsored the celebration
+
 The Sodality of Our Lady of Guadalupe (la Sociedad de Nuestra Señora de Guadalupe), the women’s organization formed at San José Church in 1941, organized the celebration. The principal work of the Guadalupanas is to honor the Mother of God under the title of Our Lady of Guadalupe. The Guadalupanas recruited a band to lead the song service. In 1978, Rey Cortes and the 12:00AM Choir led the singing that began at 5:30AM. In later years, Victor Balderas and the 8:00AM Choir led the singing.
 
 The Guadalupanas also decorated the shrine of Our Lady of Guadalupe inside the church for the event. In the third San José Church, this shrine occupies the niche on the right-hand side of the Altar that is traditionally reserved for an image of the Virgin Mary. Inside the niche is a framed copy of the famous tilma of San Juan Diego that is displayed at the Basilica in Mexico City. The Guadalupanas drape the image of the Blessed Mother with the colors of her native home (red, green and white) and surround it with hundreds of roses. Other parishioners arrive at the service carrying bouquets of Castilian roses that the Guadalupanas carefully arranged around the image of the Virgin.
@@ -677,6 +709,8 @@ As early as 1963, a tradition developed of a procession in the evening of Decemb
 Sometimes more elaborate shows were staged in the evening after the procession. A professional company of actors from San Antonio presented a drama called The Miracle of Tepeyac on Thursday, Dec. 12, 1974 at 7:30PM in the hall. Ballet Infantil of Austin, a San José Choir and the Folk Group from St. Ignatius were also on the program. The program was in Spanish with English narration. A ticket was required for entry. Tickets were $2 for adults and $1 for children (250: 08/12/74).   
 
 In 1978, when December 12 fell on a Tuesday, las Mañanitas began at 5:30AM followed by a Mass at 6:00AM and breakfast of sweet bread, chocolate and coffee after the Mass. At 7:00PM in the evening, a procession preceded the evening Mass. Following the Mass, a potluck dinner (una comida de plato cubierto) was served in the Community Center (223:03/12/78). Rey Cortes and the 12AM Choir led the singing of the Mañanitas. The 8:00AM choir sang at the evening Mass and a group from outside the parish, Azatlan del Sur (led by Mrs. Limón), presented a dance program at the evening Mass and at the dinner that followed Mass. The Guadalupanas served the meal (223:17/12/78).
+
+### A Diocesan-wide event began in 1979
 
 In 1981, when December 12 fell on a Saturday, the pastor called a meeting of parish organizations and prayer groups to plan a longer than usual program for the Feast of Our Lady of Guadalupe (223: 15/11/1981). The program consisted of the usual program of mañanitas at 6:30AM; Mass at 7:30AM and hot chocolate, coffee and pan dulce in the Community Center after the morning Mass. The children enrolled in the CCD program attended Mass at 10:00AM instead of taking classroom instruction in the school building as was usual. A procession was scheduled for the evening. Following the procession and evening Mass, a covered dish dinner was served at 7:00PM in the Community Center (223: 22/11/1981).
 
@@ -805,26 +839,47 @@ Bishop McCarthy returned the picture of the Sacred Heart that reportedly bled (2
 
 A small, portable building was purchased and the picture placed inside for viewing (66) (35). An insert to the Sunday Bulletin had times and the place where the picture could be viewed (223:01/09/1991). An announcement in the Sunday Bulletin said, “Picture of the Sacred Heat of Jesus may be viewed in the small metal building opposite Parish Hall at the following times: Sunday 2:00-9:00PM; Monday-Friday Noon-9:00PM; Saturday 9:00AM – 9:00PM (223:08/09/1991). A shorter version of the announcement appeared on September 15, 22 and 29.
 
+### The Picture was Placed on Display
+
 The pastor wrote, “Jesus said that those who view My picture with Faith, many will be healed, receive great blessings, etc. We are seeing this happen in just the first two days of viewing the picture” (223:08/09/1991). An announcement in the Sunday Bulletin, “Consecration of families and homes to the Sacred Heart of Jesus will take place this Sunday and every Sunday after the 7:00PM Mass. Consecration prayers are available in Spanish as well as English” (223:08/09/1991).
 
 On September 29, 1991, a report entitled “While Viewing the Picture of the Sacred Heart” appeared in the Sunday Bulletin for the first time. The format was similar to the Adoration Chapel report. The title is followed by the date (Sept. 17-23, 1991) and “Messages”, three; “Visions”, twelve; “Healings”, eight; “Rested in Spirit”, nine and “Deeper Conversions”, two. The pastor said, “The above are the only ones that recorded their experiences. Most people do not record them. There are numerous conversions. Many are also inspired to go to Church and the Adoration Chapel” (223: 29/09/1991).
 
 Between September 29 and November 1992, Fr. Underwood reported on the response of the people who came to see the picture. Following each date is the report that appeared in the Sunday Bulletin.
+
+### While Viewing the Picture
+
 1991, September 29		“While Viewing the Picture of the Sacred Heart” Sept. 24-30, 1991, people reported visions, beautiful experiences while “resting in the Spirit” and some messages were reported”. The pastor related the story of a pregnant woman who had a baby with a defective heart. The baby had stopped moving in her womb. The lady holding the picture (Mary Jenkins) placed the picture on the lady’s womb and the baby was healed (223: 29/09/1991).
+
 1991, October 13		“While Viewing the Picture of the Sacred Heart”, Oct. 1-7, 1991, people reported visions, beautiful experience while “resting in the Spirit” and some messages were reported”. The pastor related the story of a boy who spoke to Jesus (223: 13/10/1991).
+
 1991, October 20		“While Viewing the Picture of the Sacred Heart”, Oct. 8-14, 1991, people reported visions, beautiful experience while “resting in the Spirit” and some messages were reported”. The pastor related the story of a girl who spoke to Jesus. Mary Jenkins was the lady manning the trailer during the Jamaica on October 5 (223: 20/10/1991). Parishioners were reminded that volunteers were needed to help at the Sacred Heart building. There were five 5-hour time slots available. The contact was Sherry Joseph (223:20/10/1991).
+
 1991, October 27		“While Viewing the Picture of the Sacred Heart”, Oct. 15-21, 1991, people reported visions, beautiful experience while “resting in the Spirit” and some messages were reported”. The pastor related the story of a man who was healed (223: 27/10/1991).
+
 1991, November 3		“While Viewing the Picture of the Sacred Heart”, Oct. 22-28, 1991, people reported visions, beautiful experience while “resting in the Spirit” and some healings and conversions were reported”. The pastor reported on a son who reconciled with his father (233:03/11/1991).
+
 1991, November 10		“While Viewing the Picture of the Sacred Heart”, Oct. 29-Nov. 4, 1991, people reported visions, beautiful experience while “resting in the Spirit” and some healings and conversions were reported”. Father Underwood offered a pilgrimage retreat to 47 people from Houston. He gave retreats on Saturday, Nov. 9, 23, Dec. 14 and 21. The format of the retreat was 9:30AM communion service and healing service, 2:30PM-4:00PM presentation on Devotion to the Sacred Heart. Pilgrims brought a sack lunch with San Jose providing coffee and snacks. Reservations were required (223:10/11/1991).
+
 1991, November 17		“While Viewing the Picture of the Sacred Heart”, Nov. 5-11, 1991, “See insert for exciting reported messages from Our Blessed Mother and the wonderful healings, extraordinary phenomenon occurring” (223: 17/1/1991).
+
 1991, November 24		“While Viewing the Picture of the Sacred Heart”, Nov. 12-18, 1991, the pastor reported on healing of a painful arm and recovery from a stroke (223: 24/11/1991).
+
 1991, Dec. 1		“While Viewing the Picture of the Sacred Heart”, Nov. 19-26, 1991, the pastor reported on many conversions to the Catholic faith, several visions and messages and two marriages reconciled (223:01/12/1991).
+
 1991, December 8		“While Viewing the Picture of the Sacred Heart”, Nov. 26-Dec. 2, 1991, the pastor reported that, “Many exciting conversions, healings and special blessings are still taking place (223:08/12/1991).
+
 1991, December 15		“While Viewing the Picture of the Sacred Heart”, Dec. 3-9, 1991, the pastor reported that, “There has been reported visions and someone was healed..(223:15/12/1991).
+
 1991, December 22		“While Viewing the Picture of the Sacred Heart”, Dec. 10-16, 1991, the pastor reported that, “There has been various reported visions and messages (223:22/12/1991).
+
 1991, December 29		“While Viewing the Picture of the Sacred Heart”, Dec. 107-23, 1991, the pastor reported that, “There has been various reported visions and messages. In the future, only outstanding blessings and healings will be published” (223:29/12/1991).
+
 1992, January 7-13		The pastor reprinted four visions received while viewing the picture and mentioned that there were many others (223:19/01/1992).
+
 1992, January 14-20, 1992	The pastor reported on a conversion by a young lady who viewed the picture (223:26/01/1992). No more visions while viewing the picture were recorded in the Sunday Bulletin after that of January 20.
+
+### The Picture Attracted Pilgrims
 
 A letter to Underwood from Christine Frioni of Houston in January 1992 reported on miraculous events under the title, “First Busload from Houston Share What They Experienced Here (223:05/01/1992). An insert to the Bulletin corrected an American Statesman article of Dec. 29, 1991 and stated that five busloads from Houston will arrive on January 18, a day of a scheduled Pilgrimage Retreat.
 
@@ -837,6 +892,8 @@ Between September 1991 and January 1992, busloads of people began to make pilgri
 Underwood reported that people, especially men, arrive at the building in their cars or trucks and have a conversion experience, sometime with visions. “One young man was watching a football game and the Lord said to him, “Pray”. So the guy knelt in front of his television. The Lord said, “No, no, I said pray” so the young man drove to the church and went to the little building. He had a very deep conversion experience and now works with the youth group at the church” (66) (35). Underwood reported that about half of the people who view the picture go into a trance (66).
 
 In January 1992, the picture was moved to a large room of the Old Church (now called Sacred Heart Chapel) to accommodate the crowds. The portable building was moved to the side of the Old Church and renovated as classrooms. “A grotto will be built where the portable building was located in order to utilize the canopy so crowds can pray in front of the grotto. The statue of Our Blessed Mother that was outside under the trees next to the school is being painted by a professional artist and will be the statue of Our Lady of Fatima, white with gold trim. The grotto and renovations to the Old Church for the picture will be paid by donors at no cost to the parish” (223:12/01/1992).
+
+### The Parish Sponsored Pilgrimage Retreats
 
 From September 1991 and July 1992, Underwood hosted pilgrimage retreats on Saturdays from 9:00AM to 4:00PM that included a Communion Service, a Healing Service, a talk, free lunch and a visit to the Sacred Heart Picture (35). Mary Jenkins, one of the guardians of the picture, said she saw the picture bleed and said she received messages from Jesus after viewing it. Jenkins said that every day of the week large numbers of people crowd into the trailer on the church grounds to see the picture.  On Christmas Eve more than 150 people came to the church during a one-hour period to see the picture. Volunteer minders reported that an average of 300 people come to see the picture each day. Underwood said that five busloads of people from Houston arrived to view the picture on 18 January 1992 (65).
 
@@ -888,6 +945,8 @@ Profits from weekly bingo game ranged from one-half to two-thirds of the Sunday 
 
 The pastor launched a campaign to increase the Sunday Collections. By October 1962, he was able to tell the Socios that if they were so disposed, they could stop hosting the party games. They replied that they preferred to continue with the biweekly games because they understood how critical the money was to the parish (223:10/21/62).
 
+### PTA and the Socios ran the Bingo
+
 In November 1962, there were sometimes two bingos games every week. The Socios ran one game, at 7:30PM on the first and third Sunday of each month, for the benefit of the parish. The other game, at 8:00PM every Wednesday, was run by the PTA for the benefit of the school (223:11/18/62). The Bingo games run by the Socios netted $2,633 during 1962 (223:12/23/62). Most gamers who attended the games were not San José parishioners (223:02/17/63). Many were African-American women from the nearby Brackenridge neighborhood.
 
 In February 1963, the pastor noted in the Sunday Bulletin that twice a month the forty-five members of the Society helped with the 7:30PM Sunday Bingo. At 6:30PM the Hall was ready for the games to start and, at the close, the Socios needed 20 minutes to fix the Cafeteria so it was ready for the next school day (223:02/03/63).
@@ -896,6 +955,8 @@ Fr. Houser did not complain about the parish’s reliance on revenue from the pa
 
 In September 1963, the pastor decided that the income from the Wednesday 8:00PM Bingo would go towards a fund for enlarging the parish hall (223:09/15/63). A new room was added to the old barracks that was being used as the parish hall and income from the Wednesday night party games was used to help pay for the new room (223:10/06/63). The new room was 70 feet long and 12 feet wide and cost $2,457. The total income from the Wednesday Party Games since its inception one year before was $4,790 (223:11/02/63). During 1963, the Socios managed party games on the 1st and 3rd Sunday at 8:00PM and earned $4,006.00 for the church (223:12/22/63) (223:08/01/65).
 
+### The Bingo money was used to pay the church debts
+
 Much of the fundraising effort of the parish was driven by the need to pay the church debt. In 1964, the Socios sponsored party games every Sunday evening to raise money to pay the church debt. The profits from the 8:00PM Wednesday Bingo were for a new school building (223:03/01/64). After the parish had sufficient funds to make the next payment on the debt, the pastor announced that, “The Party Games have finished for the year. We may continue to work, but not so few so hard. Let’s have more Social Fiestas, less for money, more for entertainment” (223:10/25/64). Instead of resting, the Socios agreed to sponsor the party games on Wednesday that were previously sponsored by the PTA (223:08/08/65). Beginning in August 1965, the Wednesday party games were sponsored by the Socios (223:03/20/66) with the profit dedicated to paying the school debt (223:12/05/65).
 
 In 1967, the Socios were managing both the Wednesday 8:00PM and Sunday 8:00PM Bingo games. All the returns were used to help the parish (223:11/26/67). The men who worked on the Wednesday night bingo games paid $3,000 on the parish debt during the week of July 2 (223:07/09/67) (223:08/13/67). Two groups of men, both comprised of members (Socios) of the Society of the Sacred Heart of Jesus, ran bingo games but on different nights (223:11/12/67). The two groups competed with each other to see which group could attract the largest crowd and raise the most revenue. The rivalry between the two groups of men was intense and participants can still remember specific incidents in the rivalry fifty years later.
@@ -903,6 +964,8 @@ In 1967, the Socios were managing both the Wednesday 8:00PM and Sunday 8:00PM Bi
 During 1967, income from the bingo was $3,585.24 and the Socios who managed the games donated another $3,000 to the school fund (223:01/21/68). When their income from bingo declined, the men found other ways to increase their profits. In 1968, the Socios sold barbeque at the Sunday bingo. The first week in February, they raised $192.10 from barbeque, $143.15 from a mariachi and $83.75 from bingo (223:02/11/68). The Socios also ran a Bingo game during the May 5, 1968 Bazaar at the City Auditorium and raised $535 (223:05/12/68). The weekly Bingo games on Sunday and Wednesday nights at 8:00PM continued through 1968 (223:05/19/68) (223:01/14/68).
 
 The two weekly Bingo games at the San José parish hall were not the only games in town. Other churches also hosted Bingo games. Other groups within San Jose parish hosted games as well. In the spring of 1968, the women of the parish had two special bingo games at 8:00PM Friday in the Hall to raise seed money for the May 5 parish bazaar (223:03/10/68). That year, José Rocha of the Parish Council stated the obvious when he said that the profits from the bingos were paying the debt on the school (213).
+
+### Three Bingo nights each week
 
 In October 1968, the San Jose school PTA announced that a Bingo game on Friday would begin in November. The games were to benefit the school. Pete Casarez of the Parish Council questioned if the parish could handle another weekly bingo night. Henry Guerrero said that, “as long as we don’t interfere with another church’s bingo, we should have the Friday bingo” and the Parish Council approved the new bingo games (213). The Wednesday and Sunday night Bingo games were to continue as before. On November 18, the PTA bingo reported a profit of $116.65 from their first game (213).
 
@@ -913,6 +976,8 @@ During 1969, there were Bingo games at 8:00PM on Wednesday, Friday and Sunday, a
 In June 1969, Frank Castruita reported to the parish council that Bingo was going well but the people were requesting to go outside because of the heat in the building. The Bingo game is still being held in an old barrack building that had been converted into the parish hall (213). The Bingo game was moved to a classroom in the school building because the old Hall was too hot and crowded (223:07/20/69).
 
 In June 1968, the Parish Council set in motion plans to build a new parish hall. The new hall was scheduled to be ready in September 1969 and the persons who ran the Bingo met to plan the transition to the new space (223:09/14/69). They decided to hire Mrs. Virginia Miriam to cook on bingo nights and to buy an electric board and 800 plastic cards. The intention was to standardize the games. Henry Guerrero was in charge (213).
+
+### The Bingo Games moved to the Community Center in 1969
 
 On Sunday, October 12, 1969, a bingo game was held in the new San Jose Community Center for the first time (223:10/05/69). There were three Bingo games each week at the Community Center. The earnings were: Friday bingo $433, Sunday bingo $356 (213). The PTA sponsored another bingo on Monday nights (sometimes earning $477) (213). All workers from all three Bingo games met in the new hall in November to discuss the program (223:11/16/69). As in result, in January 1970 the Socios announced that they were seeking helpers for three Bingo games on Monday, Wednesday and Fridays at the hall at 8:00PM (223:01/11/70).
 
@@ -925,6 +990,8 @@ In June 1971, the income from bingo exceeded the Sunday Collection.  Income from
 Bingo games continued on the same schedule until 1975 (223:05/01/75). At the end of 1973, the bingo workers were Joe Rocha, Gonzalo Reyna, Pete Tamayo, Ray and Aggie Castro (249:11/11/73). Friday Night Bingo helpers were Gonzalo Riojas, Raymund Samilpa, Fidencio Aguilar, Joe Galvan, Cruz Vasquez, Jeronimo Estrada and Jimi Tamayo (249: 18/11/73) (223: 08/04/73) (249: 02/12/73). By 1975, the Guadalupanas were running the kitchen on Bingo nights. They appealed for donations of cake mixes, dry beans, rice, coffee, sugar and cheese for use in the Bingo kitchen (223:19/10/75).
 
 The Socios also managed the bingo game at the annual spring bazaar. In 1976, the bingo games run by the Socios had the largest net profit ($583) of any booth at the spring bazaar (223:09/05/76). The parish had become increasingly reliant on income from the weekly Bingo games. Until October 1977, the primary concern was recruiting enough volunteers to run the games. The parish sponsored an annual dinner for the workers to show its appreciation (223:16/01/72) but the pastor relied on the Socios, the Guadalupanas and the PTA to provide the manpower needed to keep the games going.
+
+### Madalyn Murray O'Hair stopped the Bingo games
 
 On Wednesday, October 26, 1977, a lawyer named Madalyn Murray O’Hair and her companion, Sam Miller, entered the San Jose Community Center and disrupted the Wednesday night Bingo game. Madalyn O’Hair was an atheist who arrived in Austin in 1965. Her mission in life was to limit the influence of religion in public life. She became aware that Austin churches were holding illegal Bingo games and chose the San José Wednesday night Bingo game of October 26, 1977 to begin a campaign against the practice.
 
@@ -964,43 +1031,43 @@ Parishioners from San José Church traditionally made pilgrimages to shrines in 
 
 The first shrine in San Juan, Texas was built in 1954 to house a copy of a miraculous image of Our Lady of San Juan del Valle. The original is kept in the town of San Juan de los Lagos near Guadalajara, Mexico. The Basilica of Our Lady of Guadalupe in Mexico City is near the site where Our Lady of Guadalupe is believed to have appeared to Juan Diego Cuauhtlatoatzin on December 9 through 12, 1531. Both shrines attract large numbers of pilgrims.
 
-### 1962
+### 1962 Pilgrimage
 
 It is not known when Guadalupanas from San José Church began making pilgrimages to San Juan, Texas and Mexico City. The first mention of a pilgrimage appears in the San Jose Sunday Bulletin of November 4, 1962 but, by all indications, the pilgrimage was already a well-established tradition. The announcement in the Sunday Bulletin was for a Bingo to raise money for the trip to Mexico City.  At that time, fifteen persons, most of whom were Guadalupanas or Socios, had signed up for the trip (223:11/04/62).
 
 Twenty-five parishioners from San José Parish and “four from town” made the trip in 1962 (223:11/18/62). The Pastor instructed the pilgrims to get the necessary vaccinations and a Tourist Card from the Mexican Consul. The pilgrims left in a chartered Greyhound bus on Sunday morning and returned on Saturday afternoon. The round trip ticket cost $30.60 (223:11/25/62) (223:12/02/62).
 
-### 1964
+### 1964 Pilgrimage
 
 In October, the pastor announced, “We have 33 names for the Pilgrimage to Mexico. There is room for six more. One needs proof of vaccination in a letter dated by the doctor, a Tourist Permit from the Mexican Consul and a round trip ticket from Greyhound Bus Company. We leave San José on December 8 and return on December 14” (223:10/18/1964).
 
 In November, he wrote, “There is room for 16 more to fill two buses. If we do not get enough to fill two buses, the daily bus for Mexico City leaves soon after our departure and gets in Mexico 2 hours after our arrival (223:11/08/64). We now have 42 names, if we get 17 more names they will give us two buses.” The Sunday Bulletin listed the names of people going on the pilgrimage (223:11/01/64). On December 6, the pastor announced that one bus would make the trip (223:12/06/64).
 
-### 1965
+### 1965 Pilgrimage
 
 In July, Rev. Houser said he would do what he could to have a pilgrimage in December to Mexico City. He said, “(The Blessed Mother) traveled on pilgrimage each year with St. John to visit the places made sacred by the life and death of Her Son” (223:07/18/65). In September, he announced, “16 in all now (for pilgrimage to Mexico)”. There is room for 39 persons” (223:09/12/65).
 
 “We hope to leave San José December 8 and return December 14 with four nights in Mexico. Get the Vaccination card stamped at 1313 Sabine Street, a Tourist Permit from Consul and a round-trip ticket from Greyhound” (223:11/07/65). The trip lasted 22 hours (223:12/05/65). Fr. Houser said, “About a million persons entered the Basilica in 2 days. As usual, the pilgrims from San José were treated as honored guests” (223:12/19/65). The pilgrims from San José always stayed in the Madero Hotel, which was four blocks from the Basilica (223:11/22/64).  
 
-### 1966
+### 1966 Pilgrimage
 
 Rev. Houser began announcing the Pilgrimage in the Sunday Bulletin in September. On September 25 he listed the names of eleven persons who had already signed up to go (223:09/25/66). The bus left at 9:00AM on December 7 and returned on 7:00AM on December 14 (223:12/04/66).
 
-### 1967
+### 1967 Pilgrimage
 
 In August, Rev. John Haley and Rev. Mike Mikan began to seek persons interested in making the December trip to the Shrine of Our Lady of Guadalupe in Mexico. (223:08/20/67). However, the Guadalupanas decided to forego the annual pilgrimage and to sponsor a three-day mission at San José Church with Rev. Daniel Villanueva in lieu of the trip to Mexico. The program of the mission was as follows. Sunday, Dec. 10-Rosary, Sermon and Benediction at 7:00PM; Monday, Dec. 11- 6:15AM Mass and Sermon, 6:30PM practice singing hymns of our Lady; 7:00PM Rosary, Sermon and Benediction; Tuesday, Dec. 12- 6:15AM Mass and sermon; 7:00PM Rosary, Sermon and Benediction; 8:00PM Parish social in Hall with cakes and cookies served by the Guadalupanas (223:12/10/67).
 
-### 1968
+### 1968 Pilgrimage
 
 In March, the church sponsored a bus trip for 40 persons to San Juan, Texas. The cost was $5 for the round trip and $1.50 for a double room Saturday night at the hotel on the grounds of the Shrine (223:02/25/68). The trips to San Juan always left on Saturday and returned on Sunday. The journey took six hours by bus.
 
 The Sunday Bulletin of December 1, 1968 listed 40 persons who signed up to go to Mexico City. The bus left Saturday, December 7 at 9:00AM. The cost was $37.10 for the roundtrip ticket on a Greyhound Bus. Fr. Mike Mikan and Brother Duane Boudreaux accompanied the pilgrims (223:12/01/68).
 
-### 1969
+### 1969 Pilgrimage
 
 The trip to Mexico City was announced in the Sunday Bulletin of September 14 and was sold out by the middle of October (223:09/14/69) (223:10/19/69).
 
-### 1970
+### 1970 Pilgrimage
 
 In April, the parish sponsored a bus trip to San Juan to leave 7:00AM Saturday and return Sunday 8:00PM. Mrs. Celia Guerra was in charge. The cost was $2 for a hotel room and $5 for the bus (223:04/12/70) (223:04/19/70). 43 persons made the April pilgrimage (223:04/26/70).
 
@@ -1010,27 +1077,27 @@ Those persons who were interested in making the trip to Mexico in December were 
 
 There was room for 40 persons (223:11/15/70). The bus was filled by extending invitations to parishioners at Guadalupe, Cristo Rey and St. Julia Catholic Churches (223:11/08/70) (223:11/29/70). The pastor called a meeting in the San José School for those going on the bus (223:12/06/70).
 
-### 1971
+### 1971 Pilgrimage
 
 37 persons signed up for the trip to Mexico. Each person deposited $20 with the church office to reserve their seat. Plans were made to leave Dec. 7 in the morning and return Tuesday, Dec. 14. The round-trip bus ride cost $45 and the hotel room cost 30 Pesos or $2.50 per day for six nights (223: 14/11/71). Almost all of those making the trip were parishioners of San José and many had made the trip before. Fr. John Haley was among the pilgrims (223: 05/12/71).
 
-### 1972 – 1975
+### 1972 – 1975 Pilgrimages
 
 The schedule for the trip to the Basilica in Mexico remained the same for the next several years. The bus left on December 7 and returned on December 14. A $20 or $25 deposit was required to reserve a seat (223: 10/09/72) (249: 23/09/73) (250: 12/09/74). Usually the parish chartered one 37-passenger bus. The bus was usually sold out by November but individuals could travel separately and stay with the group at the Madero Hotel near the Basilica (223: 12/11/72). In 1974 the church chartered two buses. The cost of the bus increased each year and rose from $45 in 1972 to $57 in 1974 and $62 in 1975 (223:14/11/71) (250:01/12/74) (223:28/09/75).    
 
-### 1976 - 1980
+### 1976 - 1980 Pilgrimages
 
 The parish continued to sponsor trips to the Shrine of Our Lady of San Juan del Valle in San Juan, Texas. Sometimes the youth groups from San Jose and Dolores parishes would travel together (223:06/06/76). Transportation was in a chartered bus with sitting room for 37 or 40 persons and cost $9 per person (223:06/06/76). The pilgrims left Austin on Saturday morning and returned on Sunday evening. They stayed in a small, inexpensive hotel located on the grounds of the Shrine.
 
 There was no mention of the pilgrimages to Mexico City in the Sunday Bulletins of 1976 and 1977 but there is no reason to believe that the pilgrimages stopped. The new basilica in Mexico City was scheduled for completion on October 1976 and Bishop Flores of San Antonio appealed for funds to complete it (223:04/07/76). The Sunday Bulletin of October 8, 1978 announced, “It is time to buy our tickets to Mexico City” (223:08/10/78). The price was $100 (money order only, no checks or no cash) (223:22/10/78). By Nov. 19 the bus was full and there was waiting list (223:19/11/78).
 
-### 1981
+### 1981 Pilgrimage
 
 The parish stopped chartering a bus for the trip to Mexico City in either 1980 or 1981. This did not stop San Jose parishioners from making the trip on their own. In July 1981, the Sunday Bulletin announced a pilgrimage to the Basilica of Our Lady of Guadalupe from October 10 to 14 sponsored by Confia Tours by bus or air (223:19/07/1981). Radio Station KMXX (Radio Alegria) sponsored a bus trip with the same itinerary (223:13/09/1981).
 
 Holidays ‘N’ Travel, at 714 Brazos Street in Austin, advertised a Pilgrimage to the Basilica of Our Lady of Guadalupe in Mexico City from Dec. 8- 14 to leave from San Antonio Airport. The cost was $284 per person (223:11/10/1981). Details of the trip were published in the Sunday Bulletin (223:18/10/1981).
 
-### 1984-1988
+### 1984-1988 Pilgrimage to San Juan
 
 The parish continued to sponsor pilgrimages to the Shrine in San Juan, Texas. After the purchase of a church bus in August 1984, trips were made with greater frequency. Two adults, usually a married couple, accompanied the pilgrims as driver and chaperone. The cost was $35 for adults (including the hotel room) and $20 for children 14 and under (223: 06/01/1985). The trips were always on Saturday and Sunday. Pilgrimages to San Juan were made every month during 1984 and 1985 and every month of the school year in 1986 (223:26/01/1986) (223:16/11/1986). The trips became less frequent in 1987 and 1988 (223:22/03/1987) (223:26/04/1987) (223:01/11/1987) (223:03/04/1988) (223:23/10/1988) probably because more parishioners owned cars and went in their own vehicle. The church bus was also used for trips to San Antonio and Inks Lake (223:14/10/84) (223; 23/03/1986). The parish even sponsored a trip to Nuevo Laredo to do Christmas shopping reflecting, perhaps, a shift of attention from the Christ Child to the Gifts of the Magi (223:14/12/1986).
 
@@ -1065,13 +1132,13 @@ At each house, the participants sing a song called “Villancico para pedir posa
 (Los peregrinos)	Dios pague señores nuestra caridad y os colme el cielo de felicidad.
 (Todos)		Dichosa la casa que abriga este día a la virgin pura la Hermosa María. Entren Santos Peregrinos, reciban este rincón, que aunque es pobre la morada, os la doy de corazón.
 
-## Posadas at San José Church
+### Posadas at San José Church
 
-### 1960
+#### 1960 Posadas
 
 It is not known when the first Christmas Posada took place in South Austin. The event is not connected to a parish but is typically organized by neighbors or related families who lived near each other. The first dated announcement of the event at San José Church appeared on December 18, 1960, when the San José Sunday Bulletin invited everyone to the Posadas every night at 7:00PM (223:12/18/60). The event was discontinued after a few years.
 
-### 1971
+### 1971 Posadas
 
 Beginning in 1971, Buddy Ruiz, Tim Torres, Gonzalo Barrientos and John Moore of San José parish attempted to revive the tradition of Las Posadas. That year, the guitarists were Fidencio Aguilar, Ray Cortéz and Manuel Castillo. The Sunday Bulletin described this Posada in great detail.
 
@@ -1095,7 +1162,7 @@ Wednesday, Dec. 22: Joe Garcia, 2406 Oak Crest Ave.; Frank Resendez, 2407 S. 2nd
 
 Thursday, Dec. 23: Albert Gonzalez, 1202 Southwood; Mrs. Lucy Barrientos, 1208 W. Oltorf; Joe Campos, 2404 Oak Crest Ave.; San José Community Center, 2410 Oak Crest Ave. (223:05/12/71) (223:12/12/71). Over 200 persons participated in the posada in 1971 (223:25/12/71).
 
-### 1972
+### 1972 Posadas
 
 In 1972, according to The Herald, South Austin’s Weekly Community Newspaper, the Posada procession started at the San José Church at 7:00PM. Las Posada processions began on Tuesday, December 19. That first night, the travelers found shelter at the home of Ben Vegas at 706 West Live Oak St. On the second night, the parishioners went to the house of Ramón Samilpa at 809 West Mary St. then to the house of Manuel Navarro at 1912 South 5th St. and finally to the home of Pedro Alcoser at 900 W. Oltorf Street.
 
@@ -1125,21 +1192,29 @@ Friday, Dec. 22: Joe Garcia, 2406 Oak Crest Ave.; Edward Resendez, 701 W. Oltorf
 
 Saturday, Dec. 23: Valentino Luna Sr., 2407 S. 4th; Joe Campos, 2404 Oak Crest Ave.; Julian Herrera, 2407 S. 3rd St.;  San José Youth Center
 
-### 1975
+### 1975 Posadas
 
 In December 1975, the event attracted so many participants that a different parish organization sponsored the Posada each night. The Posadas were performed every night for nine nights beginning on December 15. The following organizations sponsored the Posadas on different nights.
 
 Dec. 15, Catholic War Veterans Ladies Auxiliary
+
 Dec. 16, High School CCD
+
 Dec. 17, Catholic War Veterans
+
 Dec. 18, Guadalupanas
+
 Dec. 19, Elementary CCD
+
 Dec. 20, Junior High CCD
+
 Dec. 21, Catholic Youth Organization
+
 Dec. 22, Socios de la Sociedad del Sagrado Corazon de Jesus
+
 Dec. 23, Men’s Club. The sponsors were charged with planning the route of each night’s posada. They urged parishioners living near the church to volunteer their homes for this event (223:14/12/75).
 
-### 1984
+### Posadas after 1984
 
 During the next ten years, participation in the event declined. By December 1984, the tradition had about died out at San José Parish. Only Ray Cortez, who had played guitar during the Posada in 1971, kept it alive. Beginning Thursday, Dec. 13 to Friday, Dec. 21, Ray Cortéz and the 12:30PM Choir left the Church every night at 7:30PM and returned to the school after visiting a few houses close to the church (223:09/12/84).
 
