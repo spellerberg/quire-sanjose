@@ -88,7 +88,7 @@ The C.Y.O. was never a national organization. It was organized at the Diocesan l
 
 A few dioceses in the United States still have C.Y.O. clubs, including the Archdiocese of San Antonio and the Diocese of Laredo. The C.Y.O. in San Antonio is a sports organization. The parent organization in the Diocese of Austin, the Diocesan DCYC, also still exists but not as a sports organization. The 60th Diocese of Austin DCYC took place in Waco, Texas in February 2018. Attendance was expected to be 2,800 persons (Diocesan Catholic Youth Conference website). The San José C.Y.O. club disappeared after 1984. It was replaced by various youth groups and, later, a Youth Support Group.
 
-### 1960-1961
+### CYO Begun,1960-1961
 
 According to Pete Castillo, in the early 1960s, most of the teenage parishioners of San José Church attended Fulmore Junior High and Travis High School. Other than the CCD or Religious Education classes they were all required to attend, there was no contemporary parish organization specifically for teenagers. The Hijas de Maria were still active in 1961 but consisted of grade school girls (223:05/07/61). There was also a small group of Boys Scouts (223:03/19/61). The traditional young men’s group, Joventud Catolica, ceased to exist at San José Church sometime prior to 1960.
 
@@ -98,17 +98,17 @@ The C.Y.O. was not a social club although it had social fiestas. C.Y.O. was a so
 
 Although C.Y.O. had a priest who served as its moderator and adult volunteer sponsors who offered direction and guidance, the youth were totally responsible for carrying out their duties and responsibilities. Membership was open to high school students and young adults (209). Four or five members were elected to serve as officers. The officers, usually a President, Vice President, Secretary and Treasurer and later, a Sergeant at Arms, were elected in May (223:05/06/62) or August (223:08/09/70) of each year.
 
-### 1961-1962
+### CYO Softball, 1961-1962
 
 San José C.Y.O. fielded a softball team in 1961. The team needed money to pay the entry fees of the Austin League so parishioners were invited to a breakfast after Sunday Mass that was for the benefit of the softball team (223:04/16/61). In the summer of 1962, the San Jose softball team was in first place in their league after the first half of the season (223:07/29/62).
 
-### 1963-1965
+### CYO Sports, 1963-1965
 
 The number of sports teams sponsored by San José C.Y.O. varied over the years. In 1963, Sam Guerra coached a boys’ basketball team (223:03/03/63). The next year, a baseball team, known as the San José Champions, was formed to play against teams from other Austin Catholic Churches, such as Dolores and Guadalupe (223:05/17/64). The games were on Sunday afternoons (223:01/26/64).
 
 San José C.Y.O. sports teams occasionally had winning seasons. The baseball team and two other teams from San José won championships in 1964 (223:06/14/64). The San José Hawks boys’ baseball team won the first half championship in the spring of 1965 (223:05/30/65). The C.Y.O. boys’ softball team won the Austin District Championship in 1969 but lost the Diocesan championship game to Brenham (223:07/13/69). In the fall of the year, the boys’ flag-football and the girls’ volleyball teams competed in the inter-parochial league against teams from other churches (223:10/03/65).
 
-### 1966
+### CYO Dances, 1966
 
 Of the two hundred or so high school students registered at San José in 1968, forty or fifty attended the weekly C.Y.O. meetings (223:01/14/68). In May 1966, San José C.Y.O. had 56 card-carrying members (223:08/05/66) (223:02/18/68). Not all of the C.Y.O. members played on a sports team and the group sponsored numerous other activities. Like other San José sodalities, the group raised money by selling cakes and other baked goods (223:02/16/64) (223:02/11/68) (223:07/21/68) (223:01/18/70).
 
@@ -118,19 +118,19 @@ San José C.Y.O. also sponsored dances with live bands in the San José Communit
 
 The C.Y.O. encouraged its members to participate in religious life. In January 1967, Fr. Houser challenged the members of C.Y.O. to make a Holy Hour on First Friday, to assist at Mass as servers and to receive Holy Communion weekly (223:01/22/67). In December 1965, individual members of the C.Y.O. and Cursillistas worked many hours decorating the Church (223:12/26/65) and, in 1967, C.Y.O. members offered to baby sit small children in the school during the 10:00AM Mass beginning on July 30, 1967 (223:07/23/67). On July 21, 1969, the weekly C.Y.O. meeting was cancelled because all the boys were expected to work on repairs to the Youth Recreation Center, the old hall barrack (223:07/13/69). C.Y.O. members also helped out with the adult education classes on Tuesday and Wednesday where English as a Second Language was taught (223:02/18/68).
 
-### 1967
+### CYO's Golden Age, 1967
 
 While Rev. Michael (Mike) Mikan, C.S.C. was Assistant Pastor, from 1967 until 1975, youth activities at San Jose Church were said to have entered a “Golden Age” (12). C.Y.O. met Monday nights at 7:30PM following CCD classes (223:07/16/67) and Fr. Mikan expected 40-50 students to attend each meetings (223:01/14/68). Rev. Haley told a reporter that that C.Y.O. was among the seventh largest organizations at San José Church (122).
 
 San José C.Y.O. members were also active in the Diocesan DCYC, the annual diocesan youth convention. In 1967, eleven students from San José attended the Diocesan Convention (223:07/30/67) and sixteen attended the convention in 1969 (213). In December 1967, three C.Y.O. members from San José ran for offices in the District C.Y.O. (223:12/03/67) and Miss Beede Saenz of San José was elected President of the Austin District C.Y.O. (213).
 
-### 1970
+### Youth Center, 1970
 
 CCD classes in the school at 7:00PM were followed by meetings of C.Y.O. at 8:00PM in the new Youth Center (233:03/01/70) (223:04/05/70). The Youth Center was located in a barrack that had been renovated the previous fall by the men and boys of the parish for that purpose. Fifty to sixty young people attended the meetings and participated in the club’s activities in 1970 (223:04/26/70). C.Y.O. sponsored a dance in June and made a profit of $246 (213). The club had $500 in the bank (223:04/26/70) and was able to pay for a picnic at City Park and a trip to Six Flags for 50 of its members (223: 26/01/70) (223:08/02/70). In 1970, the San José boys’ baseball team was the defending league champions (213) (223:04/26/70).
 
 In July, the San José C.Y.O. club was voted “the best club of 1969” by the twenty-seven C.Y.O. clubs in the Diocese (213) during the Diocesan C.Y.O. convention (223:07/12/70). When the C.Y.O. District Convention met at San José in November, San José C.Y.O. received two awards (223:11/22/70). During this time, Fr. Mike Mikan was in charge of the C.Y.O. (223:09/05/70).     
 
-### 1971
+### District Champions, 1971
 
 In February 1971, San José C.Y.O. organized volleyball and basketball teams (213). Both teams went to the finals (223:02/28/71) and in July the C.Y.O. girls’ team won the Austin District softball tournament (223:07/11/71).
 
@@ -138,7 +138,7 @@ The C.Y.O. continued to meet in the Youth Center at 7:00PM, followed by CCD clas
 
 C.Y.O. helped with a South Austin clean up drive in May (223:04/25/71) (223:06/13/71) and sponsored the candidacy of Gloria Buentello for Queen of the Fiesta de Colores (213). Members attended District and State C.Y.O. meetings in San Marcos and College Station (213) and the club sent fifty members on a trip to Six Flags in June (223:06/13/71). To raise funds, members washed cars for $1 per car from 10:00AM to 4:00PM on a Saturday (223:07/18/71) and sold baked goods after Sunday Mass (223: 03/10/71). In October, they sold candy after the 10:00AM and 12:00PM Masses to raise money for “one of our high school students who intends to go to college” (223: 24/10/71). New officers, four out of five of them women, were elected in September (223: 05/09/71).           
 
-### 1972
+### Sweethearts, 1972
 
 C.Y.O. continued to meet on Monday at 7:00PM at the Youth Center. Their first fund raiser of the year, on Saturday, January 15, 1972, was a dance to raise money for a Holy Cross missionary in Bangladesh (223: 16/01/72). In February and March, C.Y.O. had bake sales after Sunday morning Masses (223: 05/03/72).
 
@@ -146,13 +146,13 @@ The club decided to sponsor a Sweetheart Candidate at the church bazaar that too
 
 C.Y.O. also managed four booths at the annual church bazaar in May and earned $280 for the church (223:21/05/72). The club had a scholarship fund of $800 that was open to any high school senior who was a member of the parish and who wished to attend college (223:04/06/72). In July, scholarships were awarded to Miss Sylvia Luna ($300); Miss Carmen Castillo ($300); Edward Esquivel ($200); Joe Sosa ($200); Miss Terri Estrada ($150) and Richard Moreno ($150) (223:16/07/72). The club had enough money to hire a bus for a trip to Six Flags in San Antonio in July (223:16/07/72).
 
-### 1973
+### Tutors, 1973
 
 C.Y.O. continued to meet on Monday nights at 7:30PM (249:02/12/73). In August new officers, all young women, were elected to fill the offices of President, Vice President, Secretary and Treasurer (248:26/08/73).
 
 In September, the C.Y.O. and CCD announced that tutors would be available in the school library from 4:00PM to 9:00PM every Tuesday to help high school students with their homework (248: 09/10/73). In November, a free clinic opened at the Youth Center on Monday nights from 7:00PM to 9:00PM with Dr. Ben White attending to children and Dr. Van Weisse attending adults (249: 04/11/73).
 
-### 1974
+### Neighborhood Youth Corps, 1974
 
 In February 1974, a girls’ basketball team (the Chompers) formed. Coaches were Ms. Thelma Ruano and Ms. Hilda Ruano. The team consisted of Rosie Martinez, Captain; Dee Dee Perez, co-Capitan; Janie Maldonado, Yolie Maldonado, Monica Salazar, Angie Castillo, Martha Castillo, Christine Ruiz, Lily Martinez and Maria Buentello (249: 24/02/74).
 
@@ -164,7 +164,7 @@ Young people at San José Parish were also involved in a mission to Mexico. The 
 
 In August forty-eight teenagers and their chaperons went on a day trip to Six Flags in San Antonio (249:21/07/74). In November, C.Y.O. prepared and served a Mexican dinner to raise funds (250:12/09/74). Tickets were sold at the church entrance for $1.75 for adults and $1.25 for children (250:03/11/74). On December 7, C.Y.O. showed movies for grammar school children in the hall for 25 cents from 1:00PM to 3:00PM (250:24/11/74).
 
-### 1975
+### Bazaar Clowns, 1975
 
 C.Y.O. continued to meet at San Jose School on Wednesday nights at 7:30PM (223:05/02/75). New officers, all young women, were elected in May (237). In September, the officers were reorganized and a new position, Sargent at Arms, was created (223:14/09/75). C.Y.O. officers met at 6:00PM on Tuesday prior to the meeting of the members on Wednesday (223:13/04/75).
 
@@ -176,7 +176,7 @@ C.Y.O. sponsored a skating party in March (223:02/03/75) and went to Landa Park 
 
 C.Y.O. managed five booths at the May 4 San Jose Church Bazaar. The booths were called Dart Booth, Plate Booth, Jail House Booth, Marriage Booth and Duck Booth. They were game booths.  In addition to managing the five booths, thirteen members of the club dressed and performed as clowns during the bazaar (237).	 
 
-### 1976
+### Mission to El Castillo, 1976
 
 During 1976, C.Y.O. met after CCD classes for 9-12th graders on Mondays at 8:00PM. Anyone who was in the 8th grade and through 12th grade could join the club (223:21/03/76) but membership was limited to high school students and recent high school graduates (223:06/06/76). A new slate of officers was elected in May with Paul Gonzalez moving from Treasurer to President (223:30/05/76). Two of the four offices were held by women. In 1976, the 20th annual C.Y.O. Convention for the Diocese of Austin was held in College Station and four young people from San José attended (223:11/07/76). On July 25, San José C.Y.O. hosted the monthly meeting of the District Board (223:25/07/76).
 
@@ -184,17 +184,17 @@ As in the previous year, C.Y.O. was involved in the mission to Mexico of which P
 
 On a Saturday in June, C.Y.O. screened movies at the Community Center for 25 cents per person (223:13/06/76). The tickets were mailed to the homes of children invited to attend. The two-hour show began at 10:00AM and was repeated at noon (223:20/06/76). The C.Y.O. gave the Associate Pastor, Rev. Larry Bauer, four checks totaling $250 to help the altar boys, the children’s’ choir and other parish organizations (223:04/07/76).
 
-### 1978
+### San Jose Reds, 1978
 
 C.Y.O. met in the school on Monday night (223:10/09/76). The Sunday Bulletin informed parishioners when and where the C.Y.O. baseball team, called the San José Reds, was scheduled to play (223:08/10/78). New officers were elected and a sixth position, a Reporter, was added to the list of officers. Five of the six officers were young women (223:11/11/78).
 
-### 1979
+### Mission to Ahuacatlan, 1979
 
 C.Y.O. sponsored softball teams for both boys and girls in 1979 (12). The C.Y.O. basketball team won a trophy at the Cristo Rey invitational basketball tournament (223:11/03/79) and, in April, the San Jose team played six games at various locations against teams named the Law Rollers, Granfalloon, HRSB, Questions, Aloha Pools and Coopers Bloopers (223:08/04/79).
 
 C.Y.O. maintained its program of religious, social and apostolic activities. Its summer volunteer program sent teams of C.Y.O. members to El Castillo and then Ahuacatlán in Mexico (12). The regular C.Y.O. meeting was Sunday at 7:00PM (223:04/02/79). The club continued to raise funds by selling cakes after 8:00AM, 10:00AM and 12:00PM Sunday Masses (223:04/02/79).
 
-### 1981
+### Lock-in,1981
 
 Alice Maldonado and Sandra Polanco were the contacts for C.Y.O. in 1981 (223:07/06/1981). They were probably the C.Y.O. President and Vice President. The club continued to field sports teams. The San José baseball team, known as the Reds, played its games at Krieg Fields in South Austin (223:05/07/1981). In the fall of the year, San Jose C.Y.O. put together a volleyball team and placed second in the district C.Y.O. volleyball tournament (223: 15/11/1981).
 
@@ -206,7 +206,7 @@ To celebrate Halloween, C.Y.O. built a Spook House that was open to the public o
 
 Alice Maldonado and Roberta Moreno were listed in the Sunday Bulletin as the contact persons for the Catholic Youth Organization (223:27/06/82). The group no longer met weekly. In 1982, the club met on the First Sunday of each month at 1:30PM (223:11/07/82). The San José Reds Softball Team won their league trophy under the direction of their coach, Ray Treviño. The team was first organized 1977 and fielded a team each year (223:17/10/82).
 
-### 1983-1984
+### YES, LIFE, JOY, 1983-1984
 
 Alice Maldonado and Roberta Moreno were listed in the Sunday Bulletin as the contact persons for the C.Y.O. in 1983 (223:02/01/1983). In February,1984, San José hosted the Diocesan C.Y.O. meeting. The meeting included mass and a dance to which high school and junior high school youth over 13 were invited to attend. The pastor warned that, “Membership Cards will be checked!” (223:12/02/84). In 1984, the Diocesan Youth convention, held in La Grange, was called the Diocesan Youth Spectacular 1984. The convention took place on a Sunday afternoon in April with a group of C.Y.O. members leaving San Jose at 12:15PM and returning at 10:00PM (223:01/04/84).
 
@@ -224,7 +224,7 @@ In March 1984, the parish decided to purchase of a school bus (223:25/03/84). Th
 
 When the bus was placed in service in August, the total cost was $29,365.30 (223:12/08/84). Most of the money came from outside the parish, but the young people had raised $1,370 by selling snow-cones (223:19/08/84). Thereafter, summer snow-cones sales became a tradition at San José that lasted until about 2015.The new bus was used for the first time to take the youth group on a trip to San Antonio (223:12/08/84).
 
-### 1985
+### The Youth, 1985
 
 After 1984, the Catholic Youth Organization (C.Y.O.) at San José underwent a change of name. The club continued to sponsor activities but the name was not used after 1987. The C.Y.O. was referred to as the Youth Program, Youth Group or, simply, Youth. Often, the Sunday Bulletin referred to “youth” without providing other details. All of these may refer to the C.Y.O. The 29th Annual Diocesan C.Y.O. Convention was held at the Marriott Hotel in Austin but it is unclear if anyone from San José attended. The cost was $65 per person (223:30/06/1985).
 
@@ -238,7 +238,7 @@ Other activities included sporting events and dances. Softball practice began on
 
 During the summer school vacation, from May 12 until August 25, the Youth sold snow-cones after the 9:30AM and 11:00AM Sunday Masses and donated the money to the church (223: 26/05/1985). The income was listed in the Sunday Bulletin each week and ranged from $25 to $75. Income from the snow-cone sale was usually around $50 per week. When the summer school vacation ended around August 25, the snow-cones sales also ended (223:09/06/1985).
 
-### 1986
+### Trip to Steubenville, 1986
 
 The Youth Program continued to sponsor sporting teams in 1986. The Youth-sponsored basketball team played in the Deanery Basketball Tournament at Martin Junior High (223: 02/02/1986). Softball practice began in May (223: 04/05/1986) and the volleyball team began playing games in July (223: 13/07/1986) (223: 17/08/1986). The volleyball season ended with a tournament at San José on Sunday, October 26 (223:26/10/1986).
 
@@ -353,11 +353,15 @@ The website of the San Jose Catholic War Veterans Post 1805 states their primary
 
 The first Post of the Catholic War Veterans in Austin was founded at St. Mary’s Church (now Cathedral) in 1948 but it only lasted for one year (265). In 1953, Post 742 of the Catholic War Veterans existed at Our Lady of Guadalupe Parish in Austin (265).
 
+### Formed in 1956
+
 Post 1805 of the Catholic War Veterans was organized at the second San José church in 1956. Pete Castillo, Lee Castillo, Gabriel Tamillo and Joe Uriegas were some of 18 charter members (193) (265). Rev. Houser and Rev. Father John Haley served as Post Chaplains. Sometime later retired US Army Col. Joseph Kmiecik became the chaplain. Rev. Kmiecik, C.S.C. retired after 30 years of service as a military chaplain and was assigned to St. Ignatius. He was an acquaintance of Joe Uriegas of the San José CWV and served as the chaplain of the Post in the 1990s until he left Austin (265).
 
 After Post 1805 was organized, Manuel Castillo and other men from CWV Post 742 at Guadalupe church moved to San Jose Post 1805 when someone stole the group’s money and Post 742 dissolved (193). The San Jose Post quickly became an important and active part of the San José Parish community (211).
 
 In 1960, the Catholic War Veterans received Communion as a group on the 2nd Sunday of the month (223:12/04/60). The CWV Post had regular meetings on Wednesdays (223:03/11/62) and occasionally hosted regional meetings at San José (223:10/14/62). The CWV Post at San José Parish focused on three areas: helping with all the dances at San José, helping with sports for young people (Sam Guerra and Romero Sanchez were coaches) and helping the Boy Scouts (Enrique Saenz was the Scout Master) (58) (223:08/18/63).
+
+### CWV helped the parish
 
 The San José Post also helped the church in other ways. They served breakfast (223:01/29/61) and helped at other events. In April 1962, the Veterans were in charge of parking and order for the Diocesan Spanish Convention. They wore their special Veteran’s Caps and guarded the cars during the Procession, Mass and Jamaica from 1PM until after the 5PM Mass (223:04/01/62). In addition to providing security, los Veteranos Católicos sponsored a “carro alegorico” for the Spanish Convention that year (6).  
 
@@ -366,6 +370,8 @@ In June 1962, Fr. Houser asked the Socios and the Veterans to handle the San Jos
 In December 1963, the Veterans sponsored a Mass at 10:00AM for the late President John Kennedy (who was a CWV member) and the CWV founder Monsignor Edward J. Higgins. After Mass, they served breakfast in the Hall. They placed an Honor Guard in the church during the Mass (223:12/01/63).
 
 The Veterans, like many other San Jose parish organizations, helped pay down the parish debt. In November 1961, the Veterans gave $41 towards the parish debt. The pastor was able to announce that, “In the past 12 months, we have paid $14,000 on our debt which is now $60,000” (223:11/19/61). During 1963, the Veterans donated $323 to the church (223:03/08/64) and in January they made a donation of $38 for the church’s debt (223:01/19/64). They took a collection at their monthly meetings and donated the money to the church. In August, they donated $40 to the church (223:08/02/64) and in September $45 (223:09/13/64). Their meetings were on Tuesday at 8:00PM (223:03/22/64) (223:05/31/64).
+
+### The Ladies Auxiliary
 
 The Ladies Auxiliary of San Jose Post 1805 of the Catholic War Veterans was formed in November 1964 with Rev. Samuel J. Ciatto, C.S.C., as their Chaplain (53). In 1993, Rev. John Korcsmar, C.S.C., was the Chaplain. The Ladies Auxiliary of the Catholic War Veterans San Jose Post met separately from the Veterans and had their own officers. They met on the 2nd Monday of each month and had their corporate Communion on the 1st Sunday of the month at 10:00AM Mass.
 
@@ -379,6 +385,8 @@ The corporate communion for the Ladies Auxiliary was the first or second Sunday 
 
 During the late 1960s, the Veterans and the Ladies Auxiliary sponsored a “Mexican Breakfast” in the Community Center in December 1967 (223:12/03/67), a dance at the City Coliseum in October 1967 (223:10/08/67) and helped at the church bazaar in May 1968 (223:04/07/68). In June 1968, the pastor, Father John Haley, told a reporter that that San Jose Catholic War Veterans was among the seventh largest organizations at San Jose Church (122).
 
+### The Home Post was on S. Congress Avenue
+
 On February 2, 1969, Gabriel Tamayo, Raymond Rodriguez and Sam Guerra of the Catholic War Veterans approached the San Jose Parish Council and asked to purchase the church’s part of a lot on S. 5th Street. Their intention was to build a clubhouse for the Post. The Veterans already owned one half of the property. The Parish Council agreed to sell the lot for $1,293.50 (213). Gabriel Gutierrez, a lawyer who had grown up in the parish and was a member of the CWV, handled the paperwork for the sale of the church lot. The church received $1,628.74 from the sale (213). The Post eventually decided not to build on the lot and sold it for $2,000 (193). The first Commander of Post 1805 worked for a man who owned a motor repair shop in South Austin. The Post Commander leased a house at 4913 S. South Congress Avenue from his boss and he subleased the building to the CWV Post for use as their headquarters (193). The Post occupied the building from about 1987 until 2017. In 2017, the owner sold the property to a developer and Post 1085 had to vacate the premises. They sold the equipment that they had installed in the building and moved their meeting place to St. Paul’s Catholic Church.
 
 During 1969 and 1970, the Ladies Auxiliary met in the library of the school at San Jose at 7:30PM on the first Monday of each month (223:07/06/69) (223:08/03/69) (223:11/02/69) (233:03/01/70) (223:05/31/70). In September, they met to elect officers for the coming year (223:09/07/69). The Ladies Auxiliary sponsored a White Elephant booth at the May 4 church bazaar in 1969 (223:04/27/69) and sold cakes on at least three occasions in 1970 (223:01/18/70) (223:10/11/70) (223:10/18/70). They continued to attend mass as a group once a month and jointly with the Veterans every three months (223:08/31/69) (223:11/22/70) (223:01/31/71) (223:05/30/71) (223:30/07/72) (249: 31/03/74).
@@ -387,6 +395,8 @@ In October 1969, the CWV Commander, Roger Ibarra, told the Parish Council that t
 
 In 1971, the Ladies Auxiliary gathered names of deceased mothers and placed them on the altar on Mother’s Day (223:05/09/71) and, in 1972, they operated three booths at the annual bazaar in May and earned $295 (223:21/05/72).
 
+### State Officers
+
 During the last half of the 1970s, the San Jose Post took a leadership role in the Catholic War Veterans state organization. In October 1974, Neff L. Zendejas was elected Post Commander (250:12/09/74). He was employed as the Assistant Veterans Service Officer for Travis County and had extensive contacts among Texas veterans’ organizations. In December, the American G.I. Forum Veterans Outreach Program announced their services in the San Jose bulletin (250: 01/12/74). The G.I. Forum was a Hispanic veterans and civil rights organization. Its headquarters was in San Antonio and it had a strong presence in Austin (223:23/03/75).
 
 The Post began to collect newspapers and magazines to sell as paper to raise money for scholarships (250: 20/10/74) and the Veterans and the Ladies Auxiliary continued to work with the parish. In 1975 and 1976, they sponsored five dances in the San Jose Community Center (223:12/01/75) (223:13/04/75) (223:11/01/76) (223:16/05/76). The proceeds from the dances were donated to the church bazaar committee or to the scholarship fund. The Ladies sold food at the annual church bazaars (223:02/05/76) and at their meeting hall (called the Home Post) on S. Congress Avenue (223:29/06/75). They continued to take Holy Communion together every two or three months (223:24/08/75). In February 1976, the Ladies Auxiliary was in charge of cleaning the church (223:08/02/76). The Sunday Bulletin urged parishioners to donate rags or paper towels to use in cleaning the church (223:15/02/76).
@@ -394,6 +404,8 @@ The Post began to collect newspapers and magazines to sell as paper to raise mon
 In June 1975, four members of San Jose Post 1805 were named outstanding members at the 30th annual state CWV convention (102) and in June 1976 six men from San Jose Post 1805 and five women from San Jose Post 1805 Ladies Auxiliary were elected to state officer positions (104). The San Jose post also won three awards (223:27/06/76). The State Officers Board Meeting in July 1976 was held at San Jose with sixty CWV members from South Texas attending the meeting (223:11/07/76). During this time, the Commander was N. L. Zendejas and the President of the Ladies Auxiliary was Amparo Longori (237).
 
 The San Jose Post hosted the CWV state quarterly meeting in October 1981. The delegates attended Mass on 7:00PM Saturday at San Jose (223: 25/10/1981). In January 1986, the CWV Department of Texas held its meeting in Austin and the veterans and the ladies of the auxiliary attended Mass together at 12:30PM (223:22/04/84) (223:19/01/1986)
+
+### Bingo
 
 The Ladies Auxiliary continued to meet on Mondays at 7:30PM (223:04/02/79) and their corporate mass was on the 4th Sunday at 10AM (223: 29/0882). In 1982, the Ladies Auxiliary managed the Wednesday evening Bingo in the Community Center (223:08/08/82) (223:30/01/83). The majority of the profits are given to college students for textbooks and living expenses (265).
 
@@ -417,12 +429,16 @@ The Cursillo focuses on training Catholic laypeople to be leaders in their commu
 
 The first Cursillo in the Americas was held in Waco, Texas, in 1957 and the national Cursillo office is currently located in Jarrell, Texas. The new spiritual exercise appeared in the Austin Diocese in 1961. Cursillos were held first in Waco and then at St. William’s Church in Round Rock.
 
+### An Ultreya formed in 1961
+
 The first Ultreya in Austin met at Guadalupe Church in January 12, 1961 (223:01/08/61). The pastor of San José said that, “We hope that other men will join this splendid movement…” (223:01/22/61). By the end of February 1961, enough parishioners from San José had attended a Cursillo that an Ultreya began meeting at San José Parish on Wednesday nights. The Sunday Bulletin announced that the next Cursillo was scheduled for March 2nd in Waco (223:02/26/61). The Cursillos were segregated by the sex of the participants and Cursillos for men and women took place on different weekends on a rotating basis (223:05/21/61).
 
 The Cursillistas returned from Waco energized and organized. In March 1961, the  
 Cursillistos assumed the charge of the all-night vigil on Holy Thursday from 7:00PM until 8:00AM (223:03/26/61). The next year, they shared responsibility for the all-night Holy Thursday Adoration with the Socios. The participants spent the night from 9:00PM to 7:00AM in prayer (223:04/15/62). The Cursillistas were in charge of adoration on Holy Thursday until at least 1966 (223:03/22/64) (223:04/03/66).
 
 In April 1962, when Rosendo Galinda was in charge of the San José Ultreya, the Cursillistas from San José sponsored a “carro alegorico” (a float) at the Diocesan Spanish Convencion (6). The floats carried images of saints (that were borrowed from a church) and depicted a scene in the life of the saint (223:02/04/62). The Spanish Convention was at San José Parish in 1962 (223:10/01/61).
+
+### Cursillistas worked as Cathechists
 
 In July 1962, the Cursillistas of San José sponsored a Jamaica with bingo games to raise money to send people to the Cursillos in Round Rock (223:07/01/62) (223:07/22/62). A Cursillo for either men or women was announced in the Sunday Bulletin about every two months in 1963 and 1964 (223:09/22/63) (223:11/03/63) (223:12/29/63) (223:04/05/64) (223:05/17/64) (223:06/07/64) (223:06/14/64). The pastor was an enthusiastic supporter and explained that, “A Cursillo is a brief course in theology. What a priest studies during his life, you study for three days” (223:01/12/64). Another time, he said, “A cursillo is a short course in Christianity lasting from Thursday to Sunday. There are five meditations and five conferences given by priests and ten given by men called professors. A cursillo is made only once, followed by retreats” (223:01/31/65).
 
@@ -438,6 +454,8 @@ Miss Joanie Herrera was a candidate for Queen at the Fiesta de Colores that took
 
 In 1970, the San José Cursillistas nominated Sylvia Samaniego as their Queen candidate for the cursillistas’ convention (223:05/17/70). In May, they sold barbecue from 11:00AM until 3:00PM to support their candidate (223:05/17/70). That year, the Fiesta de Colores met on June 14 from 10:00AM to 10:00PM at VFW Post 8787 in North Austin (223:06/14/70). The following year, the 1971 Fiesta de Colores was at San José on June 13 (223:05/09/71). This was an all-day event (223:06/06/71). San José sponsored Gloria Buentello as their candidate for sweetheart. In May, the Cursillistas sponsored a barbecue dinner after Mass to raise money for their sweetheart candidate (223:05/30/71).
 
+### Cursillistas were Song Leaders
+
 Music plays a central role in the Cursillo weekend and Cursillistas have their own song list. The Cursillistas led hymn singing at the 10:00AM Sunday Mass (223:02/16/64) even before the Church began to encourage congregational singing in December 1964 (223:11/01/64). In 1970, they invited all parishioners to Spanish language singing practice after their 7:00PM meetings on Thursday nights (223:01/04/70). In May 1972, the Cursillistas sponsored one booth at the annual church bazaar and earned $30 for the church (223:21/05/72).
 
 In addition to their work at San José, all male cursillistas were encouraged to attend a clausura at Round Rock on a Sunday in October 1971 (223:10/10/71). A second clausura for women took place in November. Cursillos and retreats were announced in the Sunday Bulletin and in notices posted at the entrance of the church (223:09/05/70). In November 1971, San José Cursillistas were invited to an apostolic hour following the 7:00PM Thursday Mass to plan for future events at San José (223:14/11/71). That year the convention took place in February in Round Rock (223:06/02/72).
@@ -445,6 +463,8 @@ In addition to their work at San José, all male cursillistas were encouraged to
 In 1981, the Ultreya met in the evening on the first Monday of each month at 7:00PM (223:07/06/1981) (223:20/09/1981) (223:20/06/82). Beginning in October 1983, the San José Ultreya met each Monday instead of once a month (223:27/01/1985) (223;16/03/1986). In 1983, the contacts for the San José Ultreya were Tom and Mary Longoria (223:06/02/83).
 
 Rev. Underwood was a strong supporter of the Cursillo and, in 1984, he identified the key movements in the Catholic church as marriage encounter, R.C.I.A., Cursillo, Parish Renewal and the Charismatic Movement (223:04/11/84). From August 1983 until March 1986, the Cursillistas and the Rosary Crusade along with five other parish organizations led the prayers for one hour each during the First Friday Adoration service (223:28/08/83). The service lasted from 7:45PM until midnight with each sodality leading the prayers for one hour on a rotating schedule. The Cursillistas continued in this service until the pastor changed and shortened the program in 1986 (223:30/03/1986). Even after this change, the Cursillistas continue to faithfully attend First Friday services.
+
+### Cursillistas raised money for the new church
 
 San José Cursillistas took a leadership role in the Austin Ultreya (223:02/10/83) and the Fiesta De Colores in Round Rock (223:24/06/84). In 1986, Mrs. Stella Trejo, Coordinator of the Cursillo Movement in Austin and a San José parishioner, was appointed to the U.S. Bishop’s National Advisory Council for a four-year term (223: 20/07/1986). In 1986, San José Cursillistas sponsored Lydia Acuña, aged 11, as the Cursillo Queen Candidate. A band called Los Comandos de Hector and Aurelio Rodriguez y Grupo Reforma played for a benefit dance for Queen Candidate Lydia Acuña at the San José Community Center in July. Lydia Acuna, the daughter of Daniel Acuña, was 3rd runner-up as Austin Candidate for the Fiesta de Colores. She raised $2,304.91 (223: 03/08/1986). The proceeds from the queen contest were for the Cursillo Building Fund (223: 13/07/1986).
 
@@ -480,8 +500,7 @@ The CYO was materially different from the traditional pious associations it repl
 
 A priest moderator and volunteer sponsors offered direction and guidance at the weekly meetings but the youth were totally responsible for carrying out their duties and responsibilities (209). While the CYO was not a traditional sodality, it was an effective fundraiser and did manage to keep the youth of the parish engaged and out of trouble, at least at San José.
 
-##
-Joventud Católica
+## Joventud Católica
 
 Three sodalities (pious societies) were organized at San José Church in the spring of 1940. The societies were organized by age and sex of the participants. The two adult sodalities were la Sociedad del Sagrado Corazón de Jesús and Sociedad del Sagrado Corazón de María. The sodality for young women was called Hijas de María. Sometime later, a sodality for young men, Joventud Católica, was formed (3) (5).
 
@@ -505,11 +524,15 @@ In May 1984, the Sunday Bulletin announced that representatives from the Knights
 
 In June and July 1989, men filled out cards to become founding members of a Knights of Columbus Council at San José Parish. They were invited to an open house in the parish hall on June 13, 7:30PM (223:11/06/1989). By July, 19 men had joined the San José Council. Their first business meeting was Monday July 31 at 7:30PM (223:30/07/1989). An orientation meeting for candidates was held in the parish hall on September 6 (223:03/09/1989).
 
+### Council #10148 was chartered in 1989
+
 On September 12, 1989, San José Council #10148 Knights of Columbus was chartered with 44 charter members. The first Grand Knight was Victor Balderas (223:01/10/1989). The Sunday Bulletin announced that the Charter would remain open for another 20 days allowing candidates not yet initiated an opportunity to become Charter Members (223:01/10/1989).
 
 On November 17, 1989, an Executive Committee was installed. Officers were Grand Knight, Octavio Victor Balderas; Deputy Grand Knight, Mel Villanueva; Chancellor, Herb Martinez; Recorder Daniel Molina; Financial Secretary, Bernard Stafford; Treasurer, Joe Alcala; Lecturer, Jim Sanchez; Advocate, Troy Castillo; Warden, Jack Salazar; Inside Guard, Avelino Saucedo; Outside Guard, Armando Zamarripa; Trustees, Guy Bondi (3 years); George Ruiz (2 years) and Jose Jimenez (1 year) (223:26/11/1989). Later in the month, Robert Martinez and Eulojio Sosa made their first degree (223:03/12/1989). The Knights of Columbus #10148 met on the second Thursday of every month at 7:45 to 8:45PM in the Parish Hall. Greg Trejo was the KOC recruiter in 1989 (223: 17/12/1989) followed by Gilbert Tello in 1990 (223: 30/09/1990).
 
 KOC Council #10148 quickly became an important parish organization, eclipsing the Sociedad del Sagrado Corazón de Jesús as the largest men’s organization in the parish. They took applications for new members in the foyer of the church and in the Parish Hall every Sunday during January 1990 (223:07/01/1990). KOC corporate communion was the fourth Sunday of each month at the 11:00AM Mass. The entire family was invited to sit with the Knights at their corporate Mass (223:09/09/1990) (223:22/07/1990) (223:09/09/1990). The KOC began attending the monthly First Friday Adoration Mass in December (223:02/12/1990).
+
+### KOC sponsored dances
 
 In January 1990, the KOC sponsored the first of the six dances that they sponsored during the year. The first KOC sponsored dance was on Saturday, January 13 from 8:00PM to midnight (223:07/01/1990). The second dance was a Valentines Adult Dance in the hall with music by Frank Sanchez y La Honda de Tejas (223:28/01/1990). The third dance was a Pre-Mother’s Day Adult dance on Saturday, May 12, 8:00PM-12:00PM, with music by Carinito. Tickets were sold in the parish hall and in the church foyer after all Masses (223:29/04/1990). Following the Mother’s Day Dance was a Father’s Day Dance on Saturday in the parish hall. Tickets for that dance were $8 per couple at $10 at the door. Tickets were sold in the church foyer and in the church office (223:03/06/1990). The other dances were an adult Halloween Dance in the parish hall (223:21/10/1990) and a New Year’s Eve Dance. The tickets were $20 per couple pre-sale and $25 at the door (223: 23/12/1990). The first KOC dance in 1991 was an adult dance with music by Edward Coronado and Tim Torre and El Grupo Selavie (223:03/02/1991) (223:10/02/1991).
 
@@ -517,12 +540,13 @@ The Knights sponsored a Free Throw Championship for children aged 10 to 14 on Ja
 
 On May 24, 1990, the Knights had a special meeting to plan the Ceremonial Installation that was to take place on June 14 (223:20/05/1990) (223:03/06/1990). The following officers were installed on June 22 during Corporate communion at the 8:00AM Sunday Mass: Nef Zendejas, Grand Knight; Jose Alcala, Deputy Grand Knight; Jose Jimenez, Financial Secretary; Jesse Duran, Treasurer; Daniel Molina, Recorder; Manuel Martinez, Chancelor; Juan Soto, Lecturer; Greg Trejo, Advocate; Avelino Sauceda, Warden; Juan Flores, Inside Guard; Jerry Aguirre, Outside Guard; Victor Balderas, Trustee, 3 years; Guy Bondi, Trustee 2 years; George Ruiz, 1 year; John Rivera, Chaplain (223:08/07/1990). The following received the Fourth Degree on Patriotism at the corporate mass at 11:00AM on March 31: Nef. L Zendejas, Grand Knight; Jose Jimenez, Financial Secretary; Pete Sepeda, Trustee; Manuel Martinez, Chancellor; Greg Trejo, Advocate; Luis Martinez, Guard; Juan Flores, Guard (223:24/03/1991).
 
+### K. C. Hall
+
 Between January and July 1993, the Knights met on the second and last Tuesday of every month at 7:45PM to 9:00PM in the Old Convent. The Grand Knight was Jose Alcala (223:02/02/1992). Beginning in December 1993, the Knights met on the last Tuesday of the month at 7:30PM in the K.C. Hall (223: 05/12/1993), a metal building that was placed next to the Casita de Esperanza.
 
 The Knights donated an American Flag and a Papal Flag to the parish that is flown from a flagpole near the entrance of the church (223:17/12/1993). The Knights sponsored two events that had become traditions for them. The first was a Basketball Free Throw for children aged 10 to 14. This took place at the South Austin Recreation Center (223:17/12/1993). The other events was their Annual Easter egg hunt after 8:00AM, 9:30AM and 11:00AM Masses on the church grounds (223:04/04/1993) (223:11/04/1993). The Knights continue to host the Easter Egg Hunt at San Jose Parish. In November 1993, a paragraph in the Sunday Bulletin explained the work of the Knights Of Columbus and invited men to join. The contacts listed in the bulletin were Nef Zendejas and Pete A. Salazar (223:21/11/1993).
 
-##
-Legion of Mary
+## Legion of Mary
 
 The Legion of Mary is a society of lay Catholics founded in Dublin, Ireland in 1921. Its object is to glorify God through the holiness of its members developed by prayer and service. The Legionaries’ service involves spiritual works of mercy rather than corporal or material service. The Legionaries commit to pray daily according to their type of membership. In addition, active members meet weekly for a devotional service.
 
