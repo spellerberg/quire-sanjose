@@ -5,7 +5,6 @@ weight: 200
 type: essay
 ---
 
-## 
 ## Mexican Missions in southern Travis County, 1939
 
 ### Introduction
@@ -100,10 +99,10 @@ Preaching Stations: Personally once every month
 Number of Communions: Hard to say, Priests help me from St. Edward’s on various missions. I cover each once a month.
 
 How often is Catechetical instruction given to the children? Each Mission once a week		Manchaca			Monday
-	San José			Tuesday and Sunday
-	Dry Creek and Elroy		Wednesday
-	Colorado and Norwood	Thursday
-	Turnerville and Creedmoor	Friday
+San José			Tuesday and Sunday
+Dry Creek and Elroy		Wednesday
+Colorado and Norwood	Thursday
+Turnerville and Creedmoor	Friday
 
 What support is derived from this Mission? Roughly $1.50 to $2.00 a Sunday
 
@@ -121,13 +120,14 @@ San José Church grew out of a preaching station in South Austin that Mendez est
 
 Luís Calderón built the platform on his farm and, when the weather permitted, the platform was used for Mass until the church on W. Mary Street was finished. The farm was on a rise near where Radam Lane ended at Williamson Creek. It was east of the railroad tracks, north of Williamson Creek and bounded on the east by the road. The road is now called Emerald Forest and it no longer ends at the creek. According to Mrs. Huerta, “Mass was still being offered at our home once a month during the construction of the church” (221). San José Church was under construction between February and June 1940.
 
+### The Sisters' Chapel
+
 Mendez and Culhane also said Mass in a small chapel in the rectory of St. Ignatius Church on Johanna Street. Mary Murillo recalled that, “The church started at a house on the corner where the Boys Club is now (303 West Johanna Street). It was the first St. Ignatius Church then. There was a white house there and we went there for Mass. By then, there were too many cars and the horse would get scared so we were really glad we had a church nearer to our home” (at 707 W. Monroe Street) (218).
 
 The first St. Ignatius Church was located in a former Methodist parsonage at the corner of Wilson and West Johanna Streets (possibly at 306 W. Johanna Street). Apparently, a wooden structure was built or placed next to the old Methodist parsonage and services took place there. The white house became the rectory. The white house mentioned by Mary Murillo was probably the rectory of St. Ignatius Church. The rectory had a tiny chapel for the priest’s use. Rev. Mendez used this chapel on occasion. The Sociedad del Sagrado Corazón de Jesús was organized in the chapel in 1939. In that chapel, Mendez and the men of the mission began to plan for the construction of a church on W. Mary Street (209). Some San Jose parishioners remember that services were held in a barracks-like structure between the rectory and the first St. Ignatius Church while others remember that services were held only in the chapel.
 
-### Notes
-
 In August 1940 four Holy Cross Sisters moved in the rectory and the pastor of St. Ignatius moved into the basement of the school. For this reason, many San José old-timers refer to the chapel as the Sister’s chapel. Other parishioners (Ester Govea Terrazas) remember that there were services in a barracks next door to St. Ignatius church on Johanna Street.
+
 The Moreno, Álvarez, Bargas, Estrada, Sosa and Rocha families and many more came for Mass at the Luís Calderón ranch (221). Alfredo Moreno Sr. lived on Sabine St. north of the river in 1939; Florencio Bargas lived at 708 W. Monroe in 1939; Gabriel Bargas lived at 516 W. Annie St. in 1939; Aurelio Estrada arrived in the area in 1940s and Pila Sosa lived in the area in 1939. José Rocha moved from Buda to South Austin in 1941.
 
 ## Mission Church at Garfield
@@ -147,6 +147,8 @@ Our Lady of Guadalupe Church remained a mission of San Jose (110) until April of
 In 1940, Rev. Mendez described a preaching station in Buda with 60 to 70 families and 10 baptisms during the year. He said he visited the preaching station once every month. He did not indicate that Religious Sisters, who served as the mission’s Catechists, gave instruction to Catholics living in Buda. Mendez estimate of the number of families living near Buda was high. The 1940 Federal census indicated 60-70 Catholic Mexican families did live in that district (1) but the mission initially attracted only 25 to 30 families (11).
 
 The preaching station had been upgraded to the status of a mission by 1941 and the decision was made to build a chapel. On March 17, 1941, Mendez purchased one acre of land from M. Rylander of Buda in the name of Bishop Arthur J. Drossaerts D.D. of the Diocese of San Antonio for the purpose of building a church. He paid $90 for the one-acre lot, $25 for a Guarantee of Title, a $5 recording fee and another sum for a survey by J. Freeman. The deed is recorded in Hays County (81). The land was located at the intersection of US Highway 81 (now known as the Old San Antonio Road) and a dirt county road running southeast toward the crossroads of Goforth (81). US Highway 81 was an extension of South Congress Avenue and was the highway to the city of San Antonio.
+
+### A chapel was built in 1941
 
 Work on a church began in June 1941 (as soon as the church in Creedmoor was finished) and was finished in December 1941. Rev. Mendez did not bother his architect to design a new building. The building was a replica of San José Church and used the same architectural prints used to build San José (193). The building had stone floors and walls, steel casement windows and a wooden roof covered with wooden cedar shingles. The roof beams were hand-hewed with an ax by Rev. Thomas Culhane, C.S.C. (11). The source of free stone from the Delanna Ranch was exhausted during the construction of San Francisco church and the stone used at Santa Cruz was taken from other ranches further away. The same volunteers who build San José and San Francisco Churches build the church at Buda. Rev. Peter Mueller, who was boarding and teaching at St. Edward’s University, provided transportation for the men who build the church. Mendez estimated that the cost to construct the building was $3200. Mendez listed himself as both the architect and the contractor (81). On December 14, 1941, Archbishop Robert E. Lucey blessed the Santa Cruz mission when he presided over a confirmation ceremony at the mission (11). The Combined Register for the Mexican Missions shows that the Bishop confirmed 21 persons at Santa Cruz on that date.
 
@@ -176,6 +178,8 @@ The land was located on State Highway 29 (now US 183). In 1940 the highway was c
 
 In December 1940, Mendez reported 180 registered families and one baptism at San Francisco Church in Colton. He explained that the mission at Colton had just been started when he wrote the annual report and that accounted for the low number of baptisms there.
 
+### Work on the church began in 1941
+
 In January 1941, work on the mission chapel began (87). Arthur Fehr, the same Austin architect who designed San Jose Church, drew the plans for this church. The two buildings shared many design features. The plans were dated October 29, 1940 just a few weeks after Mendez purchased the site. The same group of men, led by Jose Botello, who volunteered to build the building for San José built the mission in Creedmoor. (211). Mendez was once again the acting architect and contractor (81).
 
 San Francisco was built using fieldstone taken from dry creek beds, perhaps from a farm near Manchaca. La Luz church in Montopolis was built of the cut stone and, when La Luz was torn down, the stone was taken to San Francisco church and used to enlarge the kitchen and the back part of the church (14) (193).
@@ -191,6 +195,8 @@ In November 1946, when Mendez divided the debt of $900 that he owed his sister (
 In June 1950, a surplus Army barracks was purchased and remodeled as the parish hall (87). Rev. Joseph Houser said, “…barracks from dismantled Camp Swift were purchased for the churches. The men of each church volunteered…to fix these buildings into attractive parish halls” (211). On July 15, 1951, when Rev. Elmer Rupp was the pastor, Austin Bishop Louis J. Reicher dedicated the new parish hall (87).
 
 Beginning on August 6, 1952, under the supervision of Rev. Joseph Houser, C.S.C., and Rev. Charles Delaney, C.S.C., the front of the church was torn down and the buttresses, the façade and the belfry added. The remodel was completed on August 21 at 3:00PM (11) (87). Later that year, in November 1952, work on a grotto honoring Our Lady of Fatima began. The grotto was finished on December 13 (11) (87). According the church’s website, the grotto was made from rock carried from Pilot Knob. Msgr. Matocha, Fr. Houser and the pastor, Fr. Charles Delaney, blessed the new grotto on December 21 (87).
+
+### The mission became a parish in 1961
 
 In 1953, when Fr. Delaney was pastor of Dolores Church on Montopolis Drive in Austin, San Francisco became a mission of Dolores Church. San Francisco did not have a resident pastor until Elmer V. Rupp, C.S.C., became the pastor in July 1957. Because the parish did not have a rectory, Rev. Rupp lived in two rooms in the parish hall. It was not until 1958 that another room and a bath with water were added to the temporary rectory located in the parish hall. On December 31, 1961, San Francisco became a territorial parish (11).
 
@@ -257,8 +263,9 @@ Rev. Frederick Schmidt, C.S.C., was a Holy Cross missionary who was well-known t
 For 35 years, Father Schmidt worked with Mexican Americans in Georgetown, Killeen, Copperas Cove and Round Rock. In May 1972, at the age of 65, he requested a sabbatical. Writing in 2012, Rev. Pete Logsdon, C.S.C., who was well acquainted with Schmidt, told how the mission began. What follows is a summary of a blog post written originally by Rev. Pete Logsdon, C.S.C., and published in February 26, 2012.
 
 Schmidt said that he desired to spend some time in Mexico. He did not tell the Holy Cross Provincial, Rev. Christopher O’Toole, C.S.C., he would be looking for a parish in Mexico that had no priest. Schmidt located such a parish in the mountains of San Luís Potosí and received permission to spend his sabbatical year there. As the year drew to a close, Schmidt asked that he be allowed to remain in the village of Ahuacatlán. O'Toole brought the matter to his Provincial Council and it was agreed that Fr. Schmidt could stay in Ahuacatlán. He was pastor there for the next 25 years.
-During those years, many Holy Cross religious Brothers, Sisters and priests visited Fr. Schmidt at his parish in México and some, like Fred Underwood, C.S.C., and later John Korscmar, C.S.C., took groups of young people to learn about the culture and help Schmidt for some weeks in the summer months (197).  
-The San Jose/Dolores Mission Group
+During those years, many Holy Cross religious Brothers, Sisters and priests visited Fr. Schmidt at his parish in México and some, like Fred Underwood, C.S.C., and later John Korscmar, C.S.C., took groups of young people to learn about the culture and help Schmidt for some weeks in the summer months (197).
+
+### The San Jose/Dolores Mission Group
 
 In the spring of 1974, a group of youth people from San José and Dolores Churches began a mission project to Mexico that lasted until 1985. During June, July and August of 1974, 1975 and 1976, about 30 persons, about half from San José Parish and half from Dolores Parish, traveled to a parish south of Saltillo to work as Catechists. They worked in San Rafael Parish in the State of San Luís Potosí (249: 21/04/74) (249: 09/06/74) (250: 12/09/74) (250: 03/11/74) (223:27/07/75) (119).
 
