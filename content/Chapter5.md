@@ -427,6 +427,8 @@ The Religious Sisters who taught in the school continued to live in one of the o
 
 In 1974, the barracks used for the Youth Center was rented to the City. Three or four nurses occupied the old barracks that had been the parish hall before it was rechristened the Youth Center. The main function of the school nurses was to visit school clinics and homes in South Austin (249: 03/02/74). In November, a free clinic opened at the Youth Center on Monday nights from 7:00PM to 9:00PM with Dr. Ben White attending to children and Dr. Van Weisse attending adults (249: 04/11/73).
 
+### The Clinic opened in 1973
+
 According to Brother Dunn’s history of the parish, Dr. Will Van Weisse and his wife (Celilia Ruíz Van Weisse, who was a surgeon) opened a clinic in Casa Amistad for women and children in 1973 (12) (250:03/11/74). The Medical Clinic consisted of two doctors and three nurses with a pharmacy. The clinic was open on Monday and Thursday evenings from 7:00PM to 9:00PM (249:07/04/74). During summer months, the clinic was opened an hour earlier and closed at 8:00PM (249:28/07/74).
 
 The clinic run by Dr. Weisse was open on Monday and Thursday evening until 1979 although the clinic hours were adjusted periodically (223:05/01/75) (223:05/02/75). In July 1975, the clinic added a nurse for pregnancy consultations (223:27/07/75) and in August the name changed to South Austin Community Clinic (223:03/08/75).
@@ -436,6 +438,8 @@ In October 1975, the Meadowbrook Well Child Clinic moved to the South Austin Com
 In May 1976, the San José Church Sunday Bulletin announced a, “New 5-Day Clinic Schedule”. On Monday and Thursday the clinic opened at 6:00PM for “Medical Help” with a $1.00 donation required. On Tuesday and Friday the clinic opened at 8:00AM. The Tuesday clinic was for well children. The clinic opened on Wednesday at noon and offered a free check-up for Senior Citizens (223:23/05/76).
 
 The City Council ordered Brackenridge Hospital, at that time a City hospital, to reduce its outpatient load by placing most its patient in clinics in their neighborhoods. As part of this policy, in 1978, the City of Austin decided to build a community clinic, now called South Austin Community Care, at 2529 S. First Street where Herndon Lane intersects South First Street. In July 1978, the City of Austin announced that it wanted to rent the San José Community Center for use as a clinic for a period of 12-18 months while the new multi-purpose center was being built on South First Street (223: 07/16/78). For this reason, Brackenridge Hospital leased most of the San José Community Center for an outpatient clinic during 1979 (12).
+
+### The Weisse Clinic closed in 1978
 
 During this period, Dr. Weisse closed his clinic. After the clinic moved out of the old convent building in 1978, the building was renovated once again and was used as a classroom by the Sunday CCD program. The building was unoccupied during the week and neighborhood children broke into and vandalized the old building. In July 1983, the building was repaired (223:03/07/83) and was renamed “Father Joe’s Youth Center” in honor of Father Joseph Houser.
 
@@ -451,9 +455,13 @@ The tradition probably originated in San Antonio, the Hispanic heart of Texas. I
 
 Many of the elements of the San José Reina tradition mirror those of the San Antonio Fiesta Queen. The Queen’s Court was huge. In San Antonio, it consisted of 24 unmarried boys and girls. At the San José event, there were sixteen boys and girls in the Queen’s Court, eleven in that of the Princess, seven each in the Courts of the Duchess and Marquis and eight Pages. Even the naming conventions of the San José event were borrowed from those of the San Antonio Fiesta Queen. The event may be modeled after the San Antonio Fiesta Queen or it may have been a parody of it. Documentary evidence of at least two such events from the 1950s survives (33) (34).
 
+### Fiesta Patria
+
 The first event was called a “Fiesta Patria”. It was sponsored by San José Church and took place at 5:00PM on September 18. The year is unknown. The Camilo Cantu Band provided the music. Food, tamales, game booths and Bingo were available from 5:00PM until 9:00PM. At 9:00PM, the program began with a presentation of the flags of US and Mexico accompanied by National Hymns. After the hymns, the Queen’s Honor Guard (Boy Scout Troop 94) paraded in, followed by the entrance of the Queen and Her Court. Mrs. Emma Long crowned the Queen.
 
 After the Coronation, the Mexican Declaration of Independence was read followed by speeches and traditional Mexican dances. The five candidates for Queen were Misses Isabel Saldivar, Alice Ramírez, Estela Moreno, Nora Saucedo and María García (33).
+
+### Regio Festival
 
 The second event took place on February 19, 1955 in the City Coliseum and was described as the Annual Coronation of San José Queen. San José and Santa Cruz churches combined to hold a “Regio Festival” at the City Auditorium. The focus of the event was the crowning of the Parish Queen. Over 90 participants were listed in the printed program. The formal title of the event as printed on the program was, “Royal Festival of the Crowning of Her Majesty the Queen Frances the First of the Royal House of Gallardo of the Missions of San Jose and Santa Cruz, City Auditorium, 19 February 1955, Austin, Texas”.
 
@@ -465,9 +473,15 @@ Part Two of the ceremony was the Coronation of the Queen by Louis J. Reicher, Bi
 
 The Directors of the 1955 Regio Festival were Mr. Pedro Rivera, Director General; Mrs. Antonia Herrera, Sponsor of Female Candidates from San José; Mr. Manuel Castillo, Sponsor of Male Candidates from San José; Mrs. Blasa Mendoza, Sponsor of Female Candidates from Santa Cruz; Mr. Alfredo Ybarbo, Sponsor of Male Candidates from Santa Cruz; Mr. Pedro Tamayo, Raffle; Mr. José Rocha, Music and Dance; Mrs. Nellie García, Program; Mrs. Eloisa Cruz, San José Court; Mrs. Rosa Rodríguez, Santa Cruz Court; Mrs. Rufina Bargas, Stage and Flowers and Mrs. Beatríz Calderón, Supper. The entry fee was 25 cents for adults, 10 cents for children and $1.50 to attend the dance that followed the program. The festival was accompanied by an Arts Exhibition (34).
 
+#### Festival Queens, 1961
+
 The tradition of a festival Queen continued into the 1960s. In May 1961, the Queen was Jo Ann Trevino, the Princess Carol Ann McLaughlin and the Duchess Linda Kay Houston (223:05/28/61). In 1962, the San Jose School PTA sponsored a Jamaica and a contest for King and Queen as a benefit for the school library. The Coronation and Program will be held the same night as the annual Diocesan Spanish Convention on April 29 (223:01/14/62). The winner of the King contest was Frank López. Jesusa Sanchez was the Queen with Prince Ronald Dillard, Princess Marie Lawler, Duchess Dolores Diaz and Marquesa Virginia Soliz (223:04/01/62). (223:04/29/62).
 
+#### Festival Queens, 1965
+
 In May 1965, the Queen was Yolanda Carrillo. Her Court was Maria Lydia Cantu, Elaena Moreno, Janie Maldonado, Marie Diaz, Imelda Garza and Mary Lou Bermúdez. Sister Dominic Savio was Director. The Queen crowned the image of the Blessed Mother during the Annual Fiesta. The Queen Contest was part of an all-day celebration that started at 8:00AM with Mass for all the faculty and PTAA. The coronation took place between 4:00PM and 5:00PM and the carnival ended at 9:30PM (62).
+
+#### Festival Queens, 1966
 
 In 1966, May 29 Carnival Fiesta included a Concurso or Queen Contest. Four Socios sponsored candidates. The four Socios and their candidate were: Refugio Herrera sponsored Mary Ann Moreno, Frank Castruita sponsored Linda Soliz, Gonzalo Reyna sponsored Jo Ann Treviño, Luís Calderón sponsored Juanita Flores (223:04/24/66). The following Sunday Tomas Longoria was listed as sponsor of Ema DeLeon (223:05/01/66).
 
@@ -479,15 +493,25 @@ In the fall of 1966, the Socios sponsored another Jamaica on September 16. Two y
 
 When Fr. Houser left San Jose is July 1967 after 19 years as Pastor, he delivered his farewell speech after the coronation of the Queen and before the start of Bingo (223:07/02/67).
 
+#### Festival Queens, 1968
+
 In March 1968, four candidates from the Catholic Youth Organization ran for Bazaar Sweetheart. They and their sponsors were: Miss Rachel Tello, Mr. & Mrs. Reyes Cortez and Mr. & Mrs. Tom Longoria; Miss Anna Marie Herrera, Mr. & Mrs. Julio Segura and Mr. & Mrs. Guadalupe LaFuente; Miss Virginia Martinez, Mr. & Mrs. Joe Alvarado and Mr. & Mrs. Walter Garcia; Miss Virginia Ramos, Mr. & Mrs. Lorenzo Salas and Mr. & Mrs. Andrew Cantu (223:03/10/68).
 
 The Sunday Bulletin described in great detail the girl’s fund raising efforts. They sold menudo (223:03/17/68), barbecue (223:04/07/68), cakes (223:04/07/68) (223:04/21/68). Two sponsored dances at either the Municipal Auditorium or the San Jose Community Center. Another sponsored bingo at the home of her sponsor (223:04/21/68). The income from the May 5, 1968 bazaar was $9,134.28 with expenses of $1,606.73 for a profit of $7,527.55. Of that, the Sweetheart candidates raised $3,966.73 and sold $2,312 in raffle tickets (223:05/12/68).
 
+#### Festival Queens, 1969
+
 In May 1969, there were four queen candidates for the parish bazaar in the City Auditorium. There were four queen candidates. The four sweetheart candidates and their sponsors for the May 4 bazaar were: Miss Linda Casarez (Mr. and Mrs. Julio Segura and Mr. and Mrs. Hilario Garcia); Miss Carey Reyna (Mr. and Mrs. Thomas Longoria and Mr. and Mrs. Manuel Castillo); Miss Virginia Soliz (Mr. and Mrs. Andrew Cantu and Mr. and Mrs. Manuel Navarro); Miss Angie Tello (Mr. and Mrs. Bernardo Arisméndez and Mr. and Mrs. Frank Castruita) (223:04/27/69).
+
+#### Festival Queens, 1970
 
 What was described as the third annual bazaar was scheduled for May 3, 1970 at the City Auditorium (213) (223: 02/01/70). Rev. Mike Mikan, the Associate Pastor, was assigned the task for finding a celebrity to crown the queen. The sweetheart candidates were Sylvia Samaniego (sponsored by Cortez and Castruita families), Linda Hernández (sponsored by the Navarro and Anguiano families) (233:02/15/70), Vivian Botello (223:03/15/70) and Amelia LaFuente (223:03/01/70). The candidates sold tamales and cakes (223:03/15/70), sponsored three dances and a rummage sale in the hall (223:03/29/70) (223:04/12/70). They also sold ads for the program book and raffle tickets (213) (223:04/19/70) (223:05/17/70). The income from the 1970 annual bazaar was $7,294.75 (223:01/31/71).
 
+#### Festival Queens, 1971
+
 In 1971, the candidates for Sweetheart were: Miss Carmen Castillo, daughter of Pete Castillo; Miss Sylvia Luna, daughter of Valentino Luna and Miss Beatrice Mendez, daughter of Willie Mendez (223:02/14/71). Again the candidates and their sponsors and families sold cakes (223:02/21/71) (223:03/07/71) (223:03/14/71), a barbecue chicken plate (223:03/21/71) and menudo (223:04/11/71). They sponsored a Bingo and a total of eight dances (223:03/07/71) (223:03/14/71) (223:03/21/71) (223:03/28/71) (223:04/04/71) (223:04/25/71). They also sold advertisements for the program book and raffle prizes (213). State Senator Yarborough was the guest speaker and crowned the sweetheart (223:04/25/71).       
+
+#### Festival Queens, 1972
 
 In 1972, the Coronation Ball was on May 13 at the Community Center with Bishop Harris and former pastor Rev. Joseph Houser C.S.C. as special guests. The Bazaar was on May 14th at the Municipal Auditorium (223:26/03/72). The event was called San José’s 1972 “Springtime Coronation Ball” and followed the familiar pattern of the San José Coronation Balls. After the guests were introduced, the Coronation Ball was opened with the presentation of the 1971 Sweetheart- Miss Sylvia Luna, daughter of Mr. & Mrs. Valentino Luna. Fr. John Haley introduced the Queen Candidates (Cindy Ortiz, daughter of Mr. & Mrs. Jesse Ortiz; Maggie Trejo, daughter of Mrs. Anzelma Trejo; Sylvia Segura, daughter of Mr. & Mrs. Julius Segura and Gloria Vargas, daughter of Mr. & Mrs. Ascension Vargas).
 
@@ -497,19 +521,29 @@ In 1972, the candidates for Queen and their sponsors worked to raise money for t
 
 The 1972 San José Church Bazaar was on the day after the Coronation Ball. This was full-scale Jamaica at the Municipal Auditorium that lasted all day Sunday, May 14. The total income from the bazaar including the sweetheart contest was $19,313.30 with expenses $4,101.09 for net income of $15, 212.21. The sweetheart candidates raised $16,095.15 with expenses of $4,600 for net profit of $11,527.58 (223:28/05/72) (223:25/03/73).
 
+#### Festival Queens, 1973
+
 In 1973, the sweetheart candidates were Gloria Tapia, Margaret Sendejas, Sylvia Segura and Dolores Ramos. The Annual Bazaar was scheduled for Sunday June 24 at the Municipal Auditorium (223:08/04/73). The sweetheart candidates once again raised a large proportion of the money raised by the Jamaica by selling barbecue (223: 25/03/73), sponsoring bingo games (223:25/03/73) and dances (223:22/04/73). They also accounted for a large proportion of the raffle ticket sales (223:01/07/73). In 1973, the candidates occasionally worked together on their fundraising events. Profits were modest by today’s standards but substantial at the time. Annual bazaar income in 1973 was $3,938.19 net profit of sweethearts, $339.97 net profit on bazaar day and $2,954.25 net profit of the raffle for a total net profit of $7,232.41 (223:01/07/73).
 
 In 1974, the Queen Benefit Dance was preceded by a talent show.  The queen contest closed the day after the dance (249:21/04/74). The dance was part of the Cinco de Mayo Queen contest (249:28/04/74). The Queen was Mary Bargas who reigned at the Coronation Ball on Sunday (249:12/05/74) (249:19/05/74).
 
+#### Festival Queens, 1979
+
 In 1979, the bazaar was on Sunday April 22 at the Municipal Auditorium (223:15/04/79). All organizations were asked to help at the bazaar (223:16/04/79) and the CCD baked cakes, the Guadalupanas sold potholders, the Senior Citizen sold plants, the Socios served food, CYO ran a jail and the CAO ran games. Each candidate for Queen raised money by selling tickets. There were no other fund raising events for the Queens. Each ticket turned in counted as one vote. Each sponsor was given tickets check out for a specific candidate and only those tickets counted as votes for that candidate (223:11/03/79). The Guadalupana and Socios sponsored Sandra Polanco. CYO and CCD sponsored Berna Ortiz (223:01/04/79). Sister Gloria and Sam Guerra were in charge (223:15/04/79).
 
+#### Festival Queens, 1980
+
 The 1980 bazaar was held on May 11 (Mother’s Day) at the Municipal Auditorium beginning at 11:30AM. The crowning of the 1980 San Jose Sweetheart began at 6:30PM. Each candidate was sponsored by two church organizations. The sponsor with the most successful fundraising determined the winner. Rev. John Korcsmar C.S.C. was Bazaar Chairman with Sam Guerra and Henry (Hank) Guerrero as co-chairmen. The sponsoring organizations included the Catholic War Veterans, Post 1805, the Ladies Auxiliary; Catholic Young Organization (CYO); CCD; Mission Youth; Catholic Adult Organization (C.A.O.); the Socios and the Guadalupanas (91).
+
+#### Festival Queens, 1982
 
 In 1982, the spring bazaar was on Sunday, May 9 (Mother’s Day). Sweetheart candidates were Lisa Acuna, daughter of Raymond and Teresa Acuña (sponsored by CCD) and Audrey Ortiz, daughter of Jesse and Dora Ortiz (sponsored by the Mission group) (223:04/18/82). The bazaar was at the Palmer Auditorium at the corner of Barton springs Road and First Street (223:25/04/82).
 
 Once again, the sponsor with the most successful fundraising determined the winner.. Individuals purchased tickets that were marked as votes for candidates. Mrs. Frances Treviño was in charge of the sweetheart contest (223:18/04/82). On Saturday, May 1 there was a dance at the Community Center for the sweetheart candidates. Supporters purchased tickets for $10 per couple and $12 at the door from their favorite sweetheart candidate (223:18/04/82). The Bazaar Sweetheart announced at the dance (223:25/04/82). The sweetheart dance raised $615 and the sweetheart candidates raised $4,903 for a grand total of $9,081. Expenses were $2,582 for total profit of $6,499 (223:30/05/82). The 1982 bazaar was at Municipal Auditorium from 11:00AM to 7:00PM on May 9, Mother’s Day.
 
 In October 1982 Fall Fiesta included a King and Queen Contest. The contestants were Christopher Tello, Stephanie Santa Ana, Audrey Nicole Navarro, Bernadette Garcia and Daniel Medrano (223:17/10/82). They raised $2,734 for the church (223:31/10/82).
+
+#### Festival Queens, 1983
 
 In February 1983, the bazaar committee decided to discontinue to bazaars at the City Auditorium in May. The reason was that the rental for the Auditorium almost doubled from last year and the City had imposed a 25% tax on the one meal they allowed to be served. The May Bazaar would be replaced by Monthly Dances and dinners. The tradition of festival queens and kings was suspended.  
 
