@@ -26,6 +26,8 @@ The first mention of altar boys in the Sunday Bulletin was a called meeting in J
 
 In July 1969, the assistant pastor, Rev. Bob Gilmour, mentioned to the parish council the idea of an altar boys’ club (213) and, in January 1970, Raymond Canizales, C.S.C., a Holy Cross seminarian, wanted to find some way to organize the altar boys. He called a meeting on Saturday for this purpose (223:12/28/69). However, it was not until October 1974, that a way was found to organize the boys when Sister Carmen Leal and Mrs. Salazar started an Altar Boys Club that met at the school on Friday at 4:00PM (250:20/10/74). In 1974, the Boy Scout troop became inactive and an altar boys’ club was formed to fill the need for an organization for that age group (250:20/10/74).  
 
+### The Knights of the Sanctuary
+
 The club was called “Knights of the Sanctuary”. The January 19, 1975 edition of the
 The Sunday Bulletin listed, under the heading “Knights of the Sanctuary, January 26, 1975”, the names of Joey Peña, Rene Galvan, Martin Salazar, Alberto Contreras, Martin Estrada and Cruz Delgado next to the various Sunday Mass hours. These must have been altar servers assigned to those Masses (223:19/01/75).
 
@@ -39,6 +41,8 @@ The program of the 35th Anniversary Celebration in December 1975 said that, “T
 
 The Mass servers for October 4 and October 5, 1975 were Martin Salazar, David Herrera, Joey Pena, Daniel Herrera, Alberto Contreras, Alex Rubio, Alfonso Rubio and Roy Garza (223:05/10/75). The Altar Boys schedule for December 20-25 was Cruz Delgado, Rolando Carrillo, Joey Peña, Daniel Herrera, Johnny Saenz, Roy Garza, Martin Estrada, Ruben Molina, Jr., Martin Salazar, Rene Galvan, Alfonso Rubio and Albert Rubio (223:14/12/75).
 
+### The Altar Boys were aged 12 to 18
+
 Prospective altar boys are encouraged to contact Sister Theresa Noel (223:05/10/75). The Altar Boys had to be at least in the 7th grade and were required to be under18 years of age (223:24/04/83). They also had to have made their First Holy Communion (223:08/07/84). The altar boys met monthly (223:08/02/76), usually on Saturday (223:04/03/79). Like all sodalities or religious societies, the altar boys needed to raise funds. They occasionally sponsored a cake sale after each Mass (223:22/06/75) (223:10/09/78). In 1976, the altar boys had a picnic at Landa Park in New Braunfels (223:06/06/76) and in December 1978 participated in the parish Christmas party (223:10/12/78).
 
 In 1981, the contact for the Altar Boys was Albert Rubio (223:07/06/1981). Two Altar Boys served at each Mass. Their names continued to be listed in the Sunday Bulletin. The Altar Boys for the weekend of June 27-28 were Alex Rubio, Robert Martínez, John Peña, Victor Rubio, Jonathan Herrera, John Lee Herrera, Joey Herrera, Danny Herrera, John Herrera, Mark Herrera, Albert Contreras, Paul Moreno and Michael Morales (223:07/06/1981). Other Altar Boys were Victor Rubio, Alberto Contreras, Anthony Estrada, Michael Estrada, Michael Morales, Fabian Vela, Jacob Álvarez, Tito Rutt, A.  J. Samilpa, Abraham Samilpa, Alfredo Reyna, Norman Salazar and Richard Tello (223:05/07/1981).
@@ -49,6 +53,8 @@ The names of the Altar Boys as listed in Altar Boy Appointments for November 198
 
 The 1980 Church Directory had a photo showing Joe Galvan, Jr. and the Altar Boys. The photo was made in 1979 and showed twelve young men and Joe Galvan who appeared to be about 20 years old (58). The Sunday Bulletin had not been updated and still listed Alberto Rubio was listed in the church bulletin as the contact for the Altar Boys in September 1982 (223:19/09/82) (223:02/01/1983). Maybe he did not enlist in the US Navy and was still in Austin.
 
+### There were thirty Altar Boys inn 1983
+
 In April 1983, Eddie Reyes (a Holy Cross seminarian who lived in the rectory) was in charge of altar boys (223:24/04/83). Afterward Victor Rubio was in charge of the altar boys for several years (223:17/07/83). He scheduled a training session in the School building for October (223:08/07/84). All of the thirty altar servers were expected to attend the training. The pastor warned, “Be sure to turn in your Waiver” (223:14/10/84) (223:03/02/1985). Training was scheduled about every six months with monthly meetings (223:22/09/1985) (223:19/01/1986) (223:26/10/1986) (223:01/03/1987) (223:26/04/1987) (223:06/09/1987) (223:10/01/1988) (223:22/01/1989).
 
 In November 1986, the altar boys went to Bowl-a-Rama and Peter Pan Mini-Golf for an outing (223:09/11/1986). Benny Limón, Rudy Duran, Fred Chavez and Monica Hernandez were their chaperones (223:23/11/1986). To raise funds, they appealed to parishioners to leave newspapers and aluminum cans in the carport by the rectory (223:12/04/1987). They had a bake sale on Sunday, March 27, 1988 Sunday, in front of the church hall (223: 27/03/1988). On Mother’s Day, May 8, 1988, the altar servers and their parents served breakfast for Mother’s Day. The proceeds were for their trip to Six Flags. On May 8 they also began serving snow cones after the first three Sunday Masses (223:08/05/1988).
@@ -56,6 +62,8 @@ In November 1986, the altar boys went to Bowl-a-Rama and Peter Pan Mini-Golf for
 In October 1988, new altar boys were recruited. An altar servers training and recruitment meeting met at the school on a Saturday in October at 9:00AM (223:16/10/1988). Another training and recruitment meeting was on Saturday, December 10, at the school at 9:30AM. All eligible boys were invited to attend (223:27/11/1988). All altar boys and their parents met in the morning of Saturday, January 21, 1989 in the school.
 
 In addition to attending frequent training sessions, all altar servers who were scheduled to participate in the Mass of the Last Supper in 1989 met with Rev. Leonard Paul, C.S.C. to practice (223:19/03/89). After 1990, meetings and training continued on a regular schedule (223:04/11/1990) (223:23/02/1992). The meetings were mandatory and sometime the boys were asked to bring a parent with them to the Saturday morning meetings (223:08/07/1990).  The Mass schedules for ministers, Eucharistic ministers, lectors and altar servers were scheduled in blocks of two months and everyone served in rotation. This meant that the altar boys were assigned to assist at a different Mass on Saturday and Sunday, rather than one particular Mass. This often required that their parents change their Mass attendance as well.
+
+### Men replaced boys in 1993
 
 The altar boys continue to operate as a society. In July 1989, they washed cars after all Masses (223:16/07/1989) and made $141 for a trip to Six Flags (223:30/07/1989). In July 1993, the new Pastor, Fr. Kirby Garner, announced training for acolytes on Wednesday in the new church (223:25/07/1993). Shortly after becoming Pastor of San José Parish, Fr. Kirby reorganized the Altar Servers. Instead of 18 years of age being the upper limit, it became the lower limit. San José no longer accepted boys as altar servers and those who wished to serve in this capacity were asked to return when they were adults. The new system eliminated many of the problems associated with using children as altar servers. Even though the Church, after 1994, allowed parishes the option of using female altar servers, as of 2018, all altar servers at San José Church are men.
 
@@ -71,6 +79,8 @@ Three weeks later, on February 10, the pastor’s message to the people of San J
 
 “Those of you who signed up will be notified in a few days before Perpetual Adoration begins, which will be when the chapel is finished. Your commitment to this hour(s) will continue until you notify our office that you can no longer keep this hour. There are forms in the foyer of the church that you can take with you for any friends of yours who may wish to volunteer” (223:10/02/1991).
 
+### Perpetual Adoration Began in 1991
+
 On March 24, the pastor wrote that the new chapel was being finished. Padded pews were on order and would arrive in six weeks. He announced that Perpetual Adoration would begin April 1 at noon, the Monday after Easter. Volunteers received a schedule in the mail (223:24/03/1991). Volunteers were told to enter by way of the side door on the north side of the church. The parking lot lights were lit all night although the church was locked after the evening Mass and opened at 7:00AM (223:31/03/1991).
 
 The pastor said that, “Since we will be having Perpetual Adoration, we will discontinue the noon Holy Hour. We will not have the noon Holy Hour this week to encourage you to attend as many of the Holy Week Services as possible. We want to thank those of you who have been attending these Holy Hours” (223:24/03/1991).
@@ -81,45 +91,81 @@ On April 21, a report appeared in the Sunday Bulletin, “Perpetual Adoration, d
 
 On April 28, the pastor reported that two parishioners had volunteered to pay the cost to build the new Chapel, $22,518.33 (223:28/04/1991). Every week for the next six months, Fr. Underwood printed a report every week or two listing the comments received from persons who prayed in the new chapel.
 
+### Favors Granted and Blessings Received
+
 May 5, 1991		During the fourth week of Perpetual Adoration, April 23-29, 1991, the following prayers were answered: Favors Granted and Blessings Received, 19 persons comments; Healings, ten persons comments; six other persons reported a spiritual experience, vision or a message (223:05/05/1991).
+
 May 19, 1991		A report titled, “Perpetual Adoration, May 7-13, 1991”, Favors Granted and Blessings Received, 26 persons commented; Healings, 6 persons healed; Message, one person reported a message (223:19/05/1991).
+
 June 2, 1991		A report titled, “Perpetual Adoration, May 21-27, 1991”, Favors Granted, 2 persons commented; Healings, 2 persons healed; Message, two persons reported receiving a message (223:02/06/1991).
+
 June 16, 1991		A report titled, “Perpetual Adoration, June 4-10, 1991”, Favors Granted, 7 persons commented; Healings, 1 person healed; Message, four persons reported receiving a message (223:16/06/1991).
+
 June 23, 1991		A report titled, “Perpetual Adoration, June 11-17, 1991”, Favors Granted,35 persons reported; Healings, 1 person healed; Message, one person reported receiving a message (223:23/06/1991).
+
 June 30, 1991		A report titled, “Perpetual Adoration, June 18-24, 1991”, Favors Granted, 6 persons commented; 11 persons reported visions; Message, one person reported receiving a message (223:30/06/1991).
+
 July 7, 1991		A report titled Perpetual Adoration, June 25- July 1, 1991 listed under “Favors granted” 18 people left comments; “Healings” two people left comments (223:07/07/1991).
+
 July 14, 1991		A report titled Adoration Chapel, July 1- July 8, 1991 listed under “Favors granted” 15 people left comments (223: 14/07/1991). “In order to have a constant vigil of prayer before the Blessed Sacrament we are in need of volunteers for the following times”. The Bulletin then listed thirteen one-hour time slots that needed to be filled. The most common empty slot was 2-3AM and 11-12PM. Volunteers were urged to contact Cecilia or José (223:14/07/1991).
+
 July 21, 1991		A report titled Adoration Chapel, July 8- July 15, 1991 listed under “Favors granted,” 8 people reported; “Message”, one persons reported; “Healing”, one person reported; “Spiritual Experience”, one person reported speaking in tongues (223:21/07/1991).
-July 28, 1991		A report titled Adoration Chapel, July 16- July 22, 1991 listed under “Favors granted” 6 people left comments; “Healing”, one person reported relief from pain (223: 28/07/1991).
+
+July 28, 1991		A report titled Adoration Chapel, July 16- July 22, 1991 listed under “Favors granted” 6 people left comments; “Healing”, one person reported relief from pain (223:28/07/1991).
+
 August 4, 1991		A report titled Adoration Chapel, July 23- July 29, 1991 listed under “Favors granted,” 11 people left comments; two persons reported healings (223:04/08/1991).
+
 August 11, 1991		A report titled Adoration Chapel, July 30- August 5, 1991 listed under “Favors granted,” 8 people left comments; two persons reported visions and one reported a message from Jesus. Under a box titled, “Message from our Blessed Mother, “Our Blessed Mother Mary gave one of our parishioners a message that She wants as many of us as possible to come to the Church to pray the rosary from 1:00PM to 3:00PM this Thursday on Her Feast Day (223: 04/08/1991).
+
 August 18, 1991		A report titled Adoration Chapel, August 6-12, 1991 listed under “Favors granted,” 54 people left comments; four persons reported healings (223:18/08/1991).
+
 August 25, 1991		A report titled Adoration Chapel, August 13-19, 1991 listed under “Favors granted,” 40 people left comments; two persons reported healings; one reported a vision (223:25/08/1991).
+
 September 1, 1991		A report titled Adoration Chapel, August 20-26, 1991 listed under “Favors granted,” 43 people left comments including three visions (223: 01/09/1991).
 
 The pastor reported that, Bishop McCarthy wrote “a beautiful letter” congratulating San Jose parishioners for their participation in Perpetual Adoration (223:01/09/1991).
 
 September 8, 1991		A report titled Adoration Chapel, August 27- September 2, 1991 listed under “Favors granted,” 37 people left comments; four persons reported visions and three reported messages. On this day, it was announced that the picture of the Sacred Heart of Jesus could be viewed in the metal building opposite the Parish Hall (223:08/09/1991).
+
 September 15, 1991		A report titled Adoration Chapel, September 3-8, 1991 listed under “Favors granted,” 17 people left comments and one reported a message (223:15/09/1991).
+
 September 22, 1991		A report titled Adoration Chapel, September 9-16, 1991 listed under “Favors granted,” 24 people left comments, three reported messages and five reported being healed (223:22/09/1991).
+
 September 29, 1991		A report titled Adoration Chapel, September 17-23, 1991 listed under “Favors granted,” 4 people left comments and several reported visions. On this day another report titled, “While Viewing The Picture of the Sacred Heart” appeared in the Sunday Bulletin. It format was similar to the Adoration Chapel report (223:29/09/1991).
+
 October 6, 1991		A report titled Adoration Chapel, September 24-30, 1991, “As usual, there were numerous favors granted and blessings received, but instead of simply giving numbers, we will mention a few specifics.” The Pastor then described several healings (223: 06/10/1991).
+
 October 13, 1991		A report titled Adoration Chapel, October 1-7, 1991, “As usual, there were numerous favors granted and blessings received, but instead of simply giving numbers, we will mention a few specifics.” The Pastor then described two good outcomes for students (223: 13/10/1991).
+
 October 20, 1991		A report titled Adoration Chapel, October 8-14, 1991, “People are still continuing to receive visions, favors and blessings” (223: 20/10/1991).
+
 October 27, 1991		A report titled Adoration Chapel, October 15-21, 1991, “People are still continuing to receive visions, favors and blessings.” The Pastor then described two healings (223: 20/10/1991).
+
 November 3, 1991		A report titled Adoration Chapel, October 22-28, 1991, “People are still continuing to receive visions, favors and blessings” The Pastor then described two healings (223: 03/11/1991).
+
 November 10, 1991		A report titled Adoration Chapel, October- Nov. 4, 1991, “People are still continuing to receive visions, favors and blessings” (223: 10/11/1991).
+
 November 17, 1991		A report titled Adoration Chapel, Nov. 5-11, 1991, “The Lord blessed three people with new jobs this week. One also had not been working for 3 years” (223:17/11/1991).
+
 November 24, 1991		A report titled Adoration Chapel, Nov. 12-18, 1991, “There were numerous favors and blessings received”. The Pastor then described one healing and one message (223:24/11/1991).
+
 December 1, 1991		A report titled Adoration Chapel, Nov. 19-26, 1991, “There were numerous favors and blessings received”. The Pastor described one healing (223:01/12/1991).
+
 December 8, 1991		A report titled Adoration Chapel, Nov. 26- Dec. 2, 1991, “There were numerous favors and blessings received, e.g. forgiveness of self and others, new job, financial improvements. There have been numerous messages and visions that have been occurring, see the announcement regarding the rosary three times a day.”. The Pastor described one blessing (223:08/12/1991).
+
 December15, 1991		A report titled Adoration Chapel, Dec. 3-9, 1991, “Reported Message from Jesus: He wants everyone to repent. Say your rosary. Come back to church. Time is running out. Our purification is near. Be ready.” The Pastor also reported a healing (223:15/12/1991).
+
 December 22, 1991		A report titled Adoration Chapel, Dec. 10-16, 1991, “There have been several reported messages, healings and visions and one reconciliation with self and family” (223: 22/12/1991).
+
 December 29, 1991		A report titled Adoration Chapel, Dec. 17-23, 1991, “There have been several reported messages, healings and visions. In the future, outstanding blessings and healings will be published” (223: 29/12/1991).
+
 January 19, 1992		Adoration Chapel, Jan. 7-13, 1992, The Pastor transcribed a reported message from Jesus (223:19/01/1992).
+
 January 26, 1992		Adoration Chapel, Jan. 7-13, 1992, “People are still reporting numerous blessings, favors, healings and conversions” (223:19/01/1992).
 
 The hope was that at least one person would be praying in the chapel at all times. It proved difficult to find people to fill the schedule. During February 1992, the Sunday Bulletin stated, “Presently we do not have anyone committed to adoring these hours” followed by a list of nine one-hour time slots. The most common available slot is 2-3AM and 3-4AM. Volunteers were asked to contact Cecilia or Jose if they could fill the time slots listed (223:09/02/1992). Part of the problem was that women did not feel safe coming and going to the chapel during the night and at least one woman reported later that she had been assaulted while returning to her car.
+
+### A Security Guard was Hired
 
 In May 1992, the parish hired an armed guard to protect the women. “We now have security seven nights a week from 9PM to 4AM. We hope that all of you take these hours which at the present time often no one is there to accompany Our Lord 223:31/05/1992). This armed Guard will escort persons from their car to the chapel and the chapel to their cars. This guard will also be on the parking lot to protect vehicles” (223:07/06/1992). The armed guard was on site from 9:00PM to 4:00AM and cost $1,655 per month (223:02/05/1993) (223:20/06/1993).
 
