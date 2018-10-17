@@ -72,11 +72,11 @@ The PTA began having monthly meetings in September and stopped meeting in May (2
 
 The pastor considered the PTA to be a sodality and the PTA, like other sodalities at San Jose, attended Communion as a group once a month. The Guadalupanas, the Veterans and PTA all received Communion as a group on the 2nd Sunday of the month but at different Mass times (223:12/04/60).
 
-### 1961-1962
+### PTA, 1961-1962
 
 In 1961, the PTA officers consisted of a President, Vice President, Secretary, Pro-Secretary and a Treasurer. The PTA sponsored a Cub Scout troop and Cub Scout Master, Frank Gonzalez, was listed as an officer of the PTA (223:10/15/61).
 
-### 1962-1963
+### PTA, 1962-1963
 
 Four new officers were elected in September (223:09/16/62). In October, some members suggested that the PTA host a weekly bingo for the benefit of the school (223:10/21/62). The following month, the PTA began to host bingo in the Community Center at 8:00PM on Wednesday (223:11/04/62). The PTA Party Games committee had a membership of six persons who ran the games (223:04/21/63).
 
@@ -84,7 +84,7 @@ The PTA voted to buy a refrigerator for the school cafeteria (223:04/14/63). Sr.
 
 Each class from Kindergarten to Grade 7 had one to three room mothers. Room mothers were parents of students and PTA members who assisted the teacher. They were not usually teacher’s aides. In November, the room mothers were assigned the task of preparing and managing the annual school Christmas Party. The PTA Party Games Committee donated the money for the Christmas Party (223:11/17/63).
 
-### 1964-1965
+### PTA, 1964-1965
 
 Officers were elected at the first PTA meeting of the schoolyear. The meetings were on Monday nights at 7:30PM in the school (223:09/13/64). Four officers were elected (223:10/04/64) and room mothers were recruited. Each grade was assigned two room mothers except for Kindergarten that had four and the grades 7-8 class had one. A Room Mother Committee was formed with a chairperson and a vice-chairperson (223:10/04/64).
 
@@ -94,7 +94,7 @@ In 1965, the PTA was actively raising funds for a new school building. In May, t
 
 The PTA had seven Committees. The committees and their chairpersons were: Room Mothers-Frances Trevino; Teachers’ Aid-Leonor Simmons; Membership and Finance-Ben Vega; Programs and Safety-Roger Anthony; Publicity-Rosie Cantu; Physical Education-Concepcion Reyna and New School-Guadalupe Vesquez
 
-### 1965-1966
+### PTA, 1965-1966
 
 New PTA officers and committees were elected in October 1965. In addition to the four officers, twenty-four ladies volunteered as room mothers or teacher’s aides and sixteen PTA members served on four committees. Five of the sixteen committeemen were women (223:10/03/65).
 
@@ -102,7 +102,7 @@ San José PTA helped with the ground breaking of the new San José elementary sc
 
 The PTA continued to raise money for the new school after construction began. In December, the PTA Finance Committee sponsored a raffle to buy shelves and books for the library of the new school (223:12/05/65) and, on February 13, the PTA sold cakes after each Mass (223:02/13/66). The Bingo kitchen crew earned $311.39 for the school selling snacks at the weekly bingo games (223:02/20/66).
 
-### 1966-1967
+### PTA, 1966-1967
 
 PTA officers for the coming schoolyear were elected in May 1966. The officers were a president, a vice president, a secretary, a treasurer and a pro-treasurer. Three of the five officers were women (223:05/29/66). During this school year, the PTA met every second Monday instead of once a month (223:08/28/66).
 
@@ -110,13 +110,13 @@ In September, the PTA sponsored a Rummage and Bake Sale in the Cafeteria (223:08
 
 The PTA President was the Master of Ceremonies when the Bishop came to bless the new school (223:11/06/66) and PTA members were assigned to show visitors the new school (223:10/16/66).
 
-### 1967-1968
+### PTA, 1967-1968
 
 Four new officers were elected in May 1967. PTA officers rarely served more than one year and usually the entire slate of officers was replaced every year (223:05/14/67). In December, the PTA hosted a meeting of its members in an effort to explain modern mathematics to parents (223:11/26/67).
 
 The pastor reported that income from 1967 included $6,802 from bazaars and fiestas. The Guadalupanas raised most of that money but the PTA raised some of it (223:01/21/68). Rev. Haley told a reporter that that the PTA was among the seventh largest organizations at San José Church (122). New officers were elected at the last meeting of the school year on May 14 (223:05/12/68) (223:07/07/68).
 
-### 1968-1969
+### PTA, 1968-1969
 
 The PTA sponsored five booths at the July 28 Parish Bazaar. Three of the booths were children’s games (penny pitch, ring-a-coin and fish pond). The other booths sold snow cones and soft drinks (223:07/21/68). In 1968-1969, the PTA had four officers and eleven committees. Each committee had a chairperson and her assistants. The committees were Program, Publicity, Safety/Civil Defense, Playground, Courtesy Budget and Finance, Membership, Drill Team, Room Mother, Scholarship and Hospitality (223:10/06/68).
 
@@ -124,7 +124,7 @@ In 1968, the parish bazaar was on July 28 (223:07/21/68). Another parish-wide ev
 
 In October 1968, the PTA announced it would host bingo games on Friday night instead of the Wednesday night game they had hosted since 1962 (223:10/20/68). The PTA sold Christmas cards in November and candy in December to raise funds for the school (213) (223:12/01/68). The sale of Christmas card brought in roughly $350 (223:12/15/68).
 
-### 1969-1970
+### PTA, 1969-1970
 
 The PTA sponsored three booths at the May 4 Bazaar. Two booths, tick-tack-toe and fish pond, were games for young children. The PTA sold cakes from a third booth to raise funds for the church (213) (223:04/27/69). The year before the PTA had sponsored a Drill Team at San Jose School. In July, Rev. Bob Gilmour told the Parish Council that there were plans underway to organize a new Scout troop at San Jose and that he was looking for a scoutmaster (213). He suggested that the PTA sponsor the Scout troop instead of the Drill Team (213). The PTA resisted this suggestion. They knew that Scouting failed twice before at San José because of lack of interest on the part of parents and children (223:08/17/69).
 
@@ -132,7 +132,7 @@ Nevertheless, the Parish Council formed a Scout Troop 94 Committee and announced
 
 In January, the PTA was able to donate $1,767.05 to help pay the six-month installment and interest payments on the school and the new hall (223:01/04/70). During 1969, the PTA also donated $2,158.03 for book and supplies for the school (233:03/01/70). Much of this money came from the weekly bingo games hosted by the PTA. Beginning in 1970, PTA meetings were moved from Monday to Tuesday at 8:00PM in the school (223:03/22/70).
 
-### 1970-1971
+### PTA, 1970-1971
 
 The PTA began the 1970-1971 schoolyear with a fundraiser. Volunteers sold breakfast in the Community Center for 75 cents a plate (223:09/05/70). Three weeks later, the PTA sponsored a school picnic at Zilker Park from 3:00PM to 6:00PM with piñatas, games, ice cream and candy for the students attending the San Jose School (223:09/27/70). In November, the PTA began serving breakfast after the 8:00AM and 10:00AM Masses every Sunday in the Community Center (223:11/01/70).                                                                      
 The children, too, were asked to help raise funds for the school. The cheerleaders sold cakes after the 8:00AM, 10:00AM and 12:00noon Masses to raise money to buy equipment for their team (223:10/25/70) and the school children were given Christmas cards to sell (223:10/25/70). The children sold the cards at the entrance to the church after 8:00AM, 10:00AM and 12:00noon Mass on November 15 (223:11/15/70).  The price was $1 for 21 cards (223:11/22/70). Even the three teaching Sisters started a fundraiser. They asked parishioners to bring them used postage stamps that they planned to sell (223:11/15/70) (223:11/29/70).
@@ -145,17 +145,17 @@ Fundraising continued in 1971. The 1st grade mothers sold cakes after Mass on Fe
 
 In the 1970-1971 schoolyear, the PTA met on Tuesday evening at 8:00PM (223:04/11/71). Elections for officers of the coming year took place at the May 11 meeting (223:05/09/71). After the new officers were in place, they voted to donate $500 to help the parish purchase a new station wagon (223:07/11/71).
 
-### 1971-1972
+### PTA, 1971-1972
 
 During the 1971-1972 schoolyear, the PTA met at the Community Center on Tuesdays at 7:30PM (223:10/10/71). During the calendar year of 1971, the PTA donated $9,640.81 to purchase school books and pay utilities at the school (223:13/02/72). This money came from the Friday night bingo games. The income from the Monday and Wednesday night bingo games run by the Socios was substantially higher and was used to pay down the mortgage debt on the school and the Community Center. In 1971, the Socios donated $11, 467.50 to pay the principle and interest on the school debt and $14, 026.25 on the principle and interest on the hall debt (223:13/02/72). The PTA ran seven booths at the annual San Jose bazaar in May. They earned $590 from the seven booths (223:21/05/72).
 
-### 1972-1973
+### PTA, 1972-1973
 
 During the 1972-1973 schoolyear, the enrollment at San Jose School was 81 students (86) and the Parish Council voted to close the school at the end of the schoolyear (12). The Parish Council decided that it was unfair to use the resources of the parish to support a school that was attended by only a small minority of the children at San José (12).
 
 In March 1973, the PTA donated $16,977.98 to pay school salaries and utilities from the profits from the Friday Night Bingo Games (223: 25/03/73). After the school closed, the PTA disbanded. However, the debt on the school loan remained. The Friday Night Bingo Games continued but were managed by a group of Socios from the Sociedad del Sagrado Corazon de Jesus (249: 18/11/73).
 
-### After 1973
+### PTA after 1973
 
 After the school closed, the San Jose School building was renamed the San José CCD Center although the sign on the front of the building was never changed. It was used for CCD, baptismal, First Communion and first confession classes (223:05/01/75).
 
@@ -167,14 +167,19 @@ The first conference of the Society of Saint Vincent de Paul in the Diocese of A
 
 What became the District Council of Austin was formed in October 1962. The first officers of the district council were from St. Louis, Dolores and St. Mary Cathedral Parishes. Some of these leaders were inspired by their participation in the Cursillo movement. A conference was established at San José Church on January 21, 1963 and, ten months later in October 1963, a conference was formed at St. Ignatius Martyr Parish (272).
 
+### Thrift Store open in 1963
+
 In 1963, The Ladies of Charity and the Society of St. Vincent de Paul jointly opened a store selling secondhand furniture, appliances and clothing at 319 E. 6th Street. Previously, the Ladies of Charity operated a store on East 1st (or 2nd) Street selling second-hand clothing. The men of the St. Vincent de Paul Society operated a near-by store that sold furniture and appliances. Within a few months, the two organizations formed the Austin St. Vincent de Paul Store Board to run the stores as a joint venture. The responsibilities of running the store and the profits were to be split equally between the Ladies of Charity and the SVDP Society. A volunteer staff of Vincentians and Ladies of Charity operated the stores. The purpose of the store was, “to provide a storehouse of clothing and furniture for poor families of the community and to provide, at a reasonable cost, the things that poor people need” (272).
 
 In December 1963, the Sunday Bulletin announced that the Conference of the St. Vincent de Paul Society at San José was ready to help the poor of the parish. On January 26, 1964 the Society sold cakes and pies after each Mass as a fundraiser (223:01/26/64). Sometime prior to March 1972, the parish began taking a second collection for the Saint Vincent de Paul Society (223: 05/03/72). The second collection was then called the Black Bag. The pastor announced that, “This collection will be given to the Society for the needy families of the parish” (223:04/06/72). A typical “Black Bag” collection at San José in 1973 might amount to $90 (249:11/11/73).
 
 The Conferences at San José and St. Ignatius Martyr usually met together and eventually formed a joint Conference. In January 1975, the two conferences met at the rectory at St. Ignatius (223:12/01/75) (223:05/02/75). Frank Wolfe of St. Ignatius was the President of the joint Conference (223:09/03/75). The Saint Vincent de Paul Society and the Ladies of Charity of Austin worked closely together and the Ladies of Charity occasionally invited parishioners at San José to attend Mass and attend a meeting at Holy Cross Hospital (223:11/01/76).
+
 The Ladies of Charity and the Saint Vincent de Paul Society also jointly operated the thrift store. The location of the rented SVDP stores changed frequently and sometimes the Board operated two stores, usually north of the Colorado River. In 1976, the Board opened a second store at 501 W. Oltorf Street in South Austin (272). The Ladies of Charity and SVDP jointly operated the St. Vincent de Paul Southside store (223:10/09/76).
 
 In 1978, the joint Conference of San Jose and St. Ignatius met at San José on Tuesdays at 7:30PM (223:17/10/78). In 1981, Joe Juranek of St. Ignatius Conference of SVDP, was elected to serve as the President of the Austin District Council. In July, joint San José-St. Ignatius Conference hosted a meeting of the Particular Council of Austin at St. Ignatius on a Monday evening in July (223:12/07/1981). The society had no office space and operated of parishes and the Vincentian’s homes. At this meeting, Joe Juranek reported that, during June 1981, 611 people received assistance from the joint San Jose-St. Ignatius Conference at a cost of $3,145.10. This number included 368 individuals who received food (costing $900) from the food pantry (223:19/07/1981).
+
+### The Thrift Store moved to S. Congress Avenue
 
 In 1981, the South Austin SVDP Southside store moved from W. Oltorf Street to 1500 S. Congress Ave. In about 1990, the Board purchased the building at 1327 South Congress Avenue, moved the Southside store there and closed its store in downtown Austin north of the river. The SVDP Thrift Store remained at the South Congress Avenue location until 2016 when the building was sold and the thrift store moved to Braker Lane in north Austin (272).
 
@@ -208,6 +213,8 @@ The Conference at St. Ignatius was much wealthier and had more members (Vincenti
 
 During 1983, the Sunday Bulletin regularly reported on activities of the joint San Jose-St. Ignatius Conference of St. Vincent de Paul. The second collection for SVDP was on the First Sunday of each month (223:06/02/83) (223:27/02/83). The amount collected was reported monthly and ranged from $75.20 in January (223:09/01/83) to $812.20 in November (223:13/11/83). The money collected at San José was sent to the joint Conference at St. Ignatius Church (223:10/04/83).
 
+### Joe Juranek managed the Joint Conference
+
 This arrangement work well. Joe Juranek issued monthly report to San José parishioners detailing the number of people helped and how much was spent (223:26/06/83). During December 1983, the Society of St. Vincent de Paul at St. Ignatius distributed 100 Food Baskets and helped 1,034 persons with $7,201.41, mostly for fuel bills because of “the paralyzing cold”. The Black Bag collection at St. Ignatius was $3,655 and at San José $752 in December (223:29/01/84).
 
 During 1984, the combined San José and St. Ignatius Conference continued to aid large numbers of people. During February, the combined Conferences assisted 861 people with $5,450. Often the assistance offered was not monetary. The pastor noted, “Sometimes just listening is very important’ (223:18/03/84). The amount donated by San José parishioners to the Society also increased but was still only about one-tenth of that received from the parishioners of St. Ignatius Parish  (223:11/03/84) (223:12/08/84).
@@ -238,6 +245,8 @@ People assisted October ’83-September ’84	11,360 (223:18/11/1984)
 
 The second collection was not the only source of funds for the joint San José-St. Ignatius Conference. The pastor reported that the parish had raised $5,472.90 for SVDP in 1983 and $8,568.03 in 1984. This figure was about $3,000 higher than the Black Bag collections. It is not clear where the extra money came from (223:03/02/1985).
 
+### The Joint Conference was recognized in 1985
+
 In April 1985, the SVDP Council General in Paris, France formally recognized the combined San José-St. Ignatius Conference (272) and, in March 1985, the Black Bag collection at San José exceeded $1,000 for the first time (223: 10/03/1985). The Black Bag collection remained at or above $1,000 each month for the rest of 1985 and into 1986 (223:14/04/1985) (223:09/06/1985) (223:08/12/1985) (223:09/03/1986) (223:13/04/1986) (223:11/05/1986) (223:13/07/1986). The February 1986 report of the combined Conference showed that the Conference has assisted 1,519 persons during the month at a cost of $9,867.45.
 
 The February 1986 report also listed the donations received by the joint conference. The donations received were St. Ignatius Black Bag $4,534.86; Ash Wednesday collection $2,308.26; San José second collection $1,011.66; private donors $337.00; SVDP District Council $1,000.00 for total donations of $9,191.78 during the month (223; 09/03/1986).
@@ -248,6 +257,8 @@ In August 1986, the pastor, Fr. Underwood, suggested that each person tithe 8% f
 In 1987 and 1988, although the parishioners of San José continued to support the joint San José-St. Ignatius Conference by their monthly donations to the second collection (223:08/03/1987) (223:14/06/1987) (223:13/09/1987), the Conference at San José had few members. In January 1988, when St. Vincent de Paul was seeking more volunteers, the pastor commented that, “As you know, San José and St. Ignatius work together on this but San José has very few workers compared to St. Ignatius” (223:10/01/1988). The principal function of the volunteers (the Vicentians) was to visit the poor in their homes. Apparently much of this work was taken care of by the social worker at St. Ignatius and few home visits were made.
 
 In November 1988, the pastor said that San José parishioners donated $18,000 or more to SVDP in 1988 (223:20/11/1988). The monthly collection varied from about $400 to $1,500 but was reliably above $1,300 (223:1989).
+
+### SVDP provided emergency help
 
 The pastor emphasized that; “This collection is used for emergency help, e.g. paying utilities, rent, food and medicine for our people in South Austin who need temporary help. All persons needing this emergency help are referred to St. Ignatius because they have a Social Worker that tries to get financial assistance from other agencies first. We send our collection to St. Ignatius, where it is combined with their collection, for this emergency assistance” (223:30/07/1989) (223:13/12/1992).
 
