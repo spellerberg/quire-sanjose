@@ -6,39 +6,6 @@ type: essay
 
 ## The First San José Church, 1939-1956
 
-Contents:
-Luís Z. Calderón was an early supporter
-Mexicans attended segregated churches
-San José was the mission’s patron
-The first mission was in South Austin
-Father Mendez’ sister loaned money
-The architect was Arthur Fehr
-The contractor were the Weise Brothers
-Ranchers donated the stone
-Scrap materials were used
-The building was small
-The walls and floors were fieldstone
-The Nave has buttressed walls
-The sacristy was on one side of the Sanctuary
-Fiestas took place behind the church building
-Hitching posts lined the sidewalls of the church
-The roof was made from donated material
-The church was completed in June 1940
-The church was poorly ventilated
-Rev. Donahue assisted Father Mendez
-Catechists took a census in 1940
-The parish had no rectory
-The congregation soon outgrew the church
-The Bishop urged the parish to build a larger church
-The new church was located south of Oltorf Street
-The new church opened in February 1956
-The rectory was relocated to the new campus
-The old church building was sold in 1956
-The old church building became a residence
-The old church was sold again in 1974
-The Old Catholic Church renovated the buildings
-The old building became the Bouldin Castle
-
 ### Introduction
 
 Rev. Alfredo Mendez, C.S.C, arrived at St. Edward’s University in 1936 shortly after his ordination to the priesthood. In 1937, he was an instructor at St. Edward’s. He also took charge of a Mexican mission that was preparing to build Santa Rosa Church in Andice, a village 38 miles north of Austin in the Diocese of Galveston. He took sick leave in January 1937 and upon his return was assigned to St. Helen’s Church in Georgetown. In August 1939, while he was a patient in a hospital in San Antonio, Father Mendez was invited by the Bishop of San Antonio to build a church in the Diocese of San Antonio (36). At the time, there was no Spanish-speaking priest working in the territory between Kyle and the Colorado River. The Colorado River was the boundary between the Dioceses of San Antonio and Galveston. To this end, Father Mendez began to seek out Mexican Catholics living in South Austin.
@@ -53,15 +20,11 @@ When Luís Calderón and his wife met Rev. Mendez and Rev. Thomas Culhane in 193
 
 Rev. Mendez started the Mexican Mission in 1939 to serve the Mexican population living south of the Colorado River. The object of the Mexican Mission was to create a “national” church for Mexican immigrants inside of the parish boundaries of Saint Ignatius Martyr Roman Catholic Church. Priests and Brothers from the Congregation of the Holy Cross (C.S.C.) staffed both St. Ignatius Church and the Mexican mission. A separate church for Mexicans was necessary because segregationist laws and traditions prevented either Mexicans or African-Americans from attending church with White or Anglo Texans.
 
-### San José was the mission’s patron
-
 The church was originally called St. Joseph’s Mexican Catholic Church but by February 1942 it was known as Misión de San José (70) (74). In 1944, the parish was called San José Catholic Church. Its first parishioners were mostly farm laborers who worked on ranches and cotton farms in rural areas south of the city of Austin or were recently arrived immigrants who lived in Austin. Many were previously affiliated with Our Lady of Guadalupe Church, north of the Colorado River, in what was then a Mexican colonia in east Austin. Others were migrant farm workers. After San José church was built, some parishioners purchased homes near the church and found work in Austin. Luís Calderón moved from the ranch to a house near San José church in 1944. As early as 1940, he stopped farming and worked as a carpenter and rock mason.
 
 ### The first mission was in South Austin
 
 In January 1940, Rev. Mendez purchased Lot 7 & 8, Block H of the James E. Bouldin Addition from Robert W. Kirschner in the name of Bishop Arthur J. Drossaerts, D.D. of the Diocese of San Antonio for the purpose of building a church. Kirschner purchased the vacant lots in the fall of 1939 from G. E. Spinnler. The deal closed on Jan. 22, 1940 (67). Mendez paid $300 for the corner lot (Lot 8) and $200 for the adjacent lot (Lot 7). The church was built on the corner lot at 715 W. Mary Street (81).
-
-### Father Mendez’ sister loaned the money
 
 Mrs. Adelina Laugier of San Juan, Puerto Rico, loaned Mendez $900 to build the mission churches. Mrs. Laugier was the sister of Rev. Mendez. Archbishop Robert Lucey signed the note that matured in 1947 and carried no interest. In November 1946, Mendez divided the debt of $900 that was owed his sister between the four mission churches and assigned $200.00 of the debt to San José church (82).
 
@@ -69,19 +32,13 @@ Mrs. Adelina Laugier of San Juan, Puerto Rico, loaned Mendez $900 to build the m
 
 The architect of San José Church was Arthur Fehr. Arthur Fehr was a professional architect who lived in San Antonio and Austin. He later gained some notoriety while restoring the Governor’s Palace in San Antonio and afterward became quite famous. During the Great Depression, Fehr supervised construction of the stone structures located at Bastrop State Park. He did not design the structures at Bastrop State Park but the building style used by the Department of Interior for parks heavily influenced the architecture of San José Church. Fehr’s experience with the WPA project near Bastrop helped Rev. Mendez construct his mission churches at almost no cost in money (69).
 
-### The Weise Brothers was the contractor
-
 Rev. Mendez and Mexican men from the parish built the one and a half story structure with some help from Weise Brothers Contractors. The work began in February 1940 and was completed in June 1940. The windows, concrete and some labor were the only expenses. Total cost to build the church building was either $3,500 or, according to Mendez, $2,500. He spent $195 to purchase statues, seats, linens, lockers, an organ and the altar and baptistery.
 
 ### Ranchers donated the stone
 
 Much of the native limestone and cedar posts used to build the structure were taken from the Delanna ranch. Charlies F. Delanna, a mixed race man of Italian and African American descent, owned a ranch west of what is now Zilker Park and east of Bee Caves Road. The ranch was a little more than three miles by road from the San José building site on W. Mary Street. Mr. Delanna allowed Mendez and his helpers to gather fieldstone and cedar posts on his ranch. The stone was probably taken from the bed of Eanes Creek where it runs along Dellana Lane. Other stones were gathered from the bed of Williamson Creek and from farms belonging to the Elliot and Navarro families near what is now the intersection of Stassney Lane and the Union Pacific Railroad. Luís Calderón carried some of these stones to the construction site in a mule-drawn wagon. Other stones were gathered from a ranch near Round Mountain in western Travis County and from Oak Hill (69) (70).
 
-### Scrap materials were used
-
 The roof trusses were made from poles previously used on the electric streetcar line that ran along Congress Avenue south of the Colorado River. The window and door lintels were discarded railroad ties with large flat stones forming the windowsills. The ironwork, including three chandeliers, was hand wrought using scrap material. The building had steel casement windows. The gabled wooden roof was covered with cedar shingles (69) (81).
-
-### The building was small
 
 The church was shaped like the letter L with the main hall measuring 25 by 60 feet and the attached sacristy measuring 10 by 15 feet. The building had open yards on three sides. The west side yard was not enclosed and bordered on South 3rd Street. The east yard faced W. Mary Street and measured approximately 25 by 65 feet. A stone path through the east yard led to the door of the sacristy. The sacristy was located behind the main hall of the church and occupied the short leg of the L-shaped building.
 
@@ -89,15 +46,11 @@ The church was shaped like the letter L with the main hall measuring 25 by 60 fe
 
 The walls of the church were rubble fieldstone (limestone) bonded with cement on a concrete foundation. The fieldstone walls were built around a cedar post frame. The north wall faced W. Mary Street and contained the entry door. In the middle of the north wall was an arched opening where the entry doors were located. Stones radiated around the arch and long flat, one foot-wide stones laid vertically formed the keystone of the arch. The top of the north wall extended to the gabled roof. East of the entry door was a bell tower with a corbeled opening for a bell. The bell that was mounted on the church was donated and supposedly dated from the 17th century. The bell was removed in 1954 when the congregation moved to a new church located at Oak Crest Avenue at the south end of S. 3rd Street (70).
 
-### The Nave has buttressed walls
-
 The west and east walls of the church are made up of six ten-foot bays. One-foot wide buttresses separated the bays. At the corners, the walls interlock. The wall of each bay had a single, three-light casement window measuring approximately 18 inches wide and 42 inches high. The lintel is a railroad tie and a large flat stone forms the windowsill. Three wrought iron chandeliers were hung from the center ceiling beam at its apex.
 
 The southern-most bay of the west wall was approximately two feet narrower than the others. The southern-most bay contained the altar and was separated from the rest of the hall by a wall of stone with a semicircular opening. The sacristy, with a porch and a bath, was located in a wing of the building east of the altar.
 
 The east wall of the hall was identical to the west wall except that the northernmost bay was approximately five feet wider than the other bays and had a slightly smaller window. This was the location of the chapel of Our Lady of Guadalupe. The sacristy occupied the southernmost bay of the east wall (69).
-
-### The sacristy was on one side of the Sanctuary
 
 The sacristy measured approximately 10 feet by 15 feet. Its north wall had a wooden door and a small window. The north wall originally also had a screened porch entry. The porch was filled in with stone sometime after 1974. The east wall of the sacristy had one casement window with 3 x 3 lights centered in the wall. The north end of the east wall was filled in at a later date. A painted tile icon of Our Lady of Guadalupe was installed beside a small window on the north wall of the sacristy.
 
@@ -111,8 +64,6 @@ There was originally a driveway or alley on the south side of the building. At a
 
 Originally hitching posts were installed on the edge of both the east and west yards. The hitching posts consisted on three stone piers connected by horizontal cedar posts. The entry plaza in front of the church originally contained a statue of St. Joseph, the Church Patron, and a fountain (70).
 
-### The roof was made of donated material
-
 The roof trusses formed a gabled roof over the 25 feet by 60 feet main hall and the 10 feet by 15 feet sacristy. The roof trusses were made from wooden poles removed from the Congress Avenue streetcar line. Roughhewn cedar poles were laid across the truss beams and decking was laid over the cedar poles. The decking was exposed on the bottom side and was stained a dark color. There was no fascia board to seal the roof deck. The original roof was cedar shingles. These were replaced with asphalt shingles and then, after 1974, with ribbed metal.
 
 ### The church was completed in June 1940
@@ -125,15 +76,11 @@ However, the church was poorly ventilated. The church building was hot during th
 
 When Rev. James W. Donahue retired from his position as the Superior General of the Congregation of the Holy Cross, he moved to Austin, where Holy Cross Fathers staffed St. Edward’s University and three parishes. Father Donahue joined Rev. Alfred F. Mendez at the Mexican Mission.
 
-### Catechists took a census in 1940
-
 Rev. Donahue and Rev. Mendez decided to survey the Mexican population of those parts of rural Travis and Bastrop Counties that were within the Diocese of San Antonio and in the territory assigned to the mission. Father Donahue was a friend of Father John J. Sigstein, the founder of Our Lady of Victory Missionary Sisters. In early 1940, Father Donahue wrote to the Superior General of the Missionary Catechists asking for the loan of two Catechists for six months to take the census. The Missionary Sisters were Catechists who worked with Spanish-speaking Catholics living in the Southwest of the United States.
 Two Sisters, Catechist Blanche Richardson and Catechist Mary Salome Dorava, arrived in Austin in February 1940 to take the census. Initially, they roomed with the Sisters of the Holy Cross either at St. Mary’s Academy or the convent attached to Guadalupe Church.
 At this time, Rev. Frank Weber, C.S.C., was the pastor of Holy Cross parish, an all-Black congregation located in Austin north of the Colorado River. He was completing a frame building that would later house a hospital for the African-Americans and Hispanics of Austin. The Missionary Catechists were invited to live in the empty living quarters of the hospital. Rev. Donahue moved into the Holy Cross rectory with Fr. Weber.
 
 The two Sisters traveled the rural roads of Travis County in a borrowed car looking for the small cabins where Mexican farm workers lived. They carried a census book in which they entered the names of each Catholic of the household along with the sacraments they had received. The Sisters drew a map that could be used by Fr. Donahue to locate the family if necessary. The Sisters also taught classes in religion in a one-room schoolhouse that the mission rented during the summer of 1940. On Sundays, Fr. Donahue said Mass in an empty storeroom in one of the small towns south of Austin. Fr. Donahue was also charged with validating marriages and attending to the spiritual needs of the families located by the Catechists. In July 1940, the two Sisters returned to New Mexico and, shortly afterward, Donahue was transferred to one of his order’s houses in the East. Donahue died in June 1943 at Notre Dame University (4).
-
-### The mission had no rectory
 
 Until 1948, San José mission had no rectory and Mendez lived in rented rooms in South Austin. In 1940, he lived on Burleson Road in the home of Orin Metcalfe. In 1944, he lived at 1906 Newton Street in rented quarters. By 1947, he had moved to 1808 S. 6th Street. Prior to 1948, the parish purchased the lot at 711 W. Mary Street (Lot 6, Block H, James E. Bouldin Addition). This lot was adjacent to the existing church and had a small house on it. The house was initially converted into the parish hall. The house was later torn down and, in 1948, a team of Holy Cross Fathers led by Rev. Frank Webber, C.S.C. built a two-story rectory and parish hall. Fr. Webber was known as the Carpenter Priest.
 
@@ -141,19 +88,11 @@ Until 1948, San José mission had no rectory and Mendez lived in rented rooms in
 
 As early as November 1946, Rev. Mendez realized that the church was too small for his growing congregation. He told the Bishop that San José church was too small and that he needed $7,000 to enlarge the building. He also said he needed $8,000 for a social center/church hall and $5,000 for a rectory. He also presented a plan to purchase the St. Ignatius campus on the 300-block of W. Johanna Street. While the Chancery Office and the Bishop considered this offer, Mendez was reassigned and left Austin (82).
 
-### The Bishop urged the congregation to build a larger church
-
 In the spring of 1954, while Rev. Joseph Houser was pastor, Bishop Reicher visited San José Church and found the church completely full with people standing outside. He urged the congregation to build a larger church. To facilitate this, Bishop Reicher gifted San José Parish six acres of land south of Oltorf Street and west of S. First Street for a new church campus (12).
-
-### The new church was located south of Oltorf Street
 
 Brother Lambert Barbier of St. Edward’s University and Rev. Edwin Bauer had acquired the land for the purpose of building a medical clinic. Their hope was to staff the clinic with religious Sisters but at the time it appeared that none would be available. The Bishop decided that a new church for San José was a greater priority and the land was given to San José Parish. The Bishop also purchased several residential lots in the middle of the block that had road access to Oltorf Street. José Rocha, Luís Calderón and other men of the congregation began to clear brush from the tract.
 
-### The new church opened in February 1956
-
 The Bishop hired the firm of Walter Cocke, Jr. and Company to design a parish auditorium that would serve on a temporary basis as a church. The ground breaking ceremony took place on July 17, 1955 and the building was completed in January 1956. Soon afterward the new building was opened for services. The Solemn Blessing was scheduled for February 5 but delayed until February 19 because of an ice storm. On March 19, 1956, Bishop Reicher blessed the new San José Church building on the feast day of San José.
-
-### The rectory was relocated to the new campus
 
 The rectory at the old San José church was lifted up, placed on a large trailer and carried up S. 3rd Street to its current location east of the new building. Among the men involved in the move were Ernest Pérez, Enrique Saenz, Frank González and Sam Guerra. When the church moved in 1955 to its new building, the communion rail, the altar footpace and the 17th-century bell were removed from the old church and taken to the new building (9).
 
@@ -161,11 +100,7 @@ The rectory at the old San José church was lifted up, placed on a large trailer
 
 In December 1953, San José Parish transferred the ownership of lot 6 and the rectory to the Bishop of the Diocese of Austin, Rev. Louis J. Reicher. After the parish moved to its new location south of Oltorf Street in 1956, the Bishop sold the three lots containing the old church (Block H. Lots 6, 7 and 8, J. E. Bouldin Addition) to Beatriz M. Calderón, the wife of Luís Z. Calderón. Luís Calderón was actively involved in the parish, helped build the first church and was a long-time leader of the Sacred Heart Society and other church organizations. Luís Calderón retained ownership of Lot 6 at 711 W. Mary Street and built a house on it. This house and lot is still owned by his son, Luís M. Calderon Jr. (67).
 
-### The old church building became a residence
-
 After Beatriz Calderón purchased the old church buildings, they were rented for various uses, primarily as a residence. Sheet rock partitions were installed in the church to make small rooms. At one time, the church building was rented to a band called Roky Ericson and the 13th Floor Elevators (70).
-
-### The old church was sold again in 1974
 
 In the spring of 1974, Luís A. Calderón et al sold the church building and lots 7 and 8 to the United Liberal Church of Texas, Inc. In 1975, the building was purchased by the Old Catholic Church of Texas, Inc. and given the name Holy Name of Mary Old Catholic Church (109).  
 
@@ -191,6 +126,8 @@ In 1939, Fr. Weber, assisted by an architectural student at the University of Te
 
 In 1948, Bishop Reicher recommended that San José Church build a rectory (211). At that time, the pastor lived in rented rooms or at St. Edward’s University. Rev. Joseph Houser, C.S.C., the pastor of San José Parish, asked Fr. Weber to draw up plans for a rectory next to San José Church on W. Mary Street. Houser had purchased lot 6 next to the church that was then occupied by a single-story house (193). Initially, the old house was remodeled and used as a parish hall.
 
+### The Carpenter Priest
+
 Fr. Webber was asked to construct the building and he became not only the architect but the principal builder as well (211). The builders included Weber, his brother Anthony (Tony) Weber, Rev. Elmer Vincent Rupp, Rev. Joel Clifford (Cliff) Atwood and Rev. Joseph Houser (211). Tony Weber was a Holy Cross Brother and the other men were Holy Cross priests. The old building was demolished and the materials used to build a 6,400 sq. ft. two-story building. The rectory was built in the same style as the original church and rectory at Holy Cross Parish. Both buildings were two-story, balloon-frame structures (40) similar to the houses in Detroit, Michigan where Webber grew up (“Southern Breeze”, Vol. 9, No. 5 April 1978, Holy Cross Fathers- Southern Province, pages 1, 2) (193).
 
 In 1955, the Bishop gave San José Church a large plot of land south of W. Oltorf Street for the new church campus. Sometime after February 1956, when the new San José Church building opened for services, the Rectory was jacked up, placed on a trailer, hauled up S. 3rd Street and placed just east of the site of the second San José church (12) (9).
@@ -200,6 +137,8 @@ In November 1957, the Bishop of Austin sold Block H, Lots 6, 7 and 8 to Beatriz 
 The parish priests continued to live in the rectory until a new rectory was built in 1988. Sometimes the rectory was called, “the priest’s house”. The rectory had two apartments upstairs and one downstairs. In 1983 the Pastor, Assistant Pastor and the Director of Youth Groups lived in the rectory. The Cerebral Palsy Organization rented an office on the first floor. In July 1983, the Cerebral Palsy Organization left the building and, in August, the remaining church offices in the rectory were moved to the first floor of the School Building. This consolidated all the offices of the church and CCD into one space and made room for the priests to have a meeting room in the rectory (223:10/07/83). The rectory was used only for business requiring a priest (223:24/07/83).
 
 Normally the priests do their own cooking in a kitchen located downstairs. In 1983, they told parishioners that gift certificates from grocery stores such as HEB or Safeway were suitable Christmas gifts for them. Often one or two parishioners volunteered to cook for the priests one day a week. In 1983, Molly Resas began cooking supper for the priests every Wednesday. By October 1985, she was cooking twice a week. Trine Ramírez cleaned the rectory every week from 1983 until 1985. In 1985, Ray Cortez installed carpet in much of the rectory.
+
+### Parishioners maintained the rectory
 
 Occasionally, men of the parish, usually led by the Socios, undertook to make repairs or to paint the interior of the building. In 1984, William Bunten and Frank Evans donated and installed an air conditioning system for the downstairs. In 1985 volunteers, including Ray Cortez, his son and Henry Flores, installed carpet in the remaining areas of the building.
 
@@ -217,7 +156,7 @@ The structure Rev. Webber and his fellow Holy Cross priests built in 1948 remain
 
 San José Parish has a long history of using surplus military barracks as “temporary” buildings or what would now be called portable buildings. The parish purchased at least five surplus military barracks on three different occasions. Only one of the wooden buildings was still in use in 2018. The others were sold or demolished. The history of each building is told under the title of the Parish Hall/Youth Building, the School Compound and the Convent.
 
-### The Parish Hall/Youth Center
+### The Parish Hall
 
 Sometime between 1948 and 1954, possibly in June 1950, Rev. Houser purchased a number of surplus military barracks from Camp Swift, a US Army training base near Bastrop. San José Parish and each of its missions received one of these buildings. The men of each church volunteered to make these buildings into parish halls for meetings and celebrations (211).
 
@@ -234,6 +173,8 @@ In September 1963, the pastor decided to enlarge the parish hall to accommodate 
 In February of the next year, the parish decided to tile the wooden plank floor with cheap tile (223:02/09/64). Since most of the profits from the Bingo games were used to pay the debt on the church, the pastor called for donations. He needed $235 to purchase the tile. The Catholic War Veterans donated $50 and the Guadalupanas donated $41. The Socios donated $50 from the profits from Sunday’s game party (223:02/16/64) and the PTA agreed to donate $50 from the proceeds from the Wednesday Night Party Games (223:02/23/64). The Cursillistas donated $36 and the CYO donated $11 to complete the fund. The men of the church installed the tile (223:03/08/64).                                                                            	 
 In May 1968, the Parish Council began discussing necessary repairs to the existing parish hall. At the June 17, 1968 Council meeting, Henry Saenz reported that a committee had examined the hall and found that it was a firetrap. The building did not have air conditioning, was unattractive and distasteful and the kitchen was unsanitary. A new foundation would be needed before the walls could be repaired. The roof leaked. Faced with this report, the Parish Council voted to build a new parish hall, now called the San José Community Center (213).
 
+### The Youth Center
+
 The Catholic Youth Organization asked for and received permission to use the old building as a youth center. In July 1969, renovation of the old hall into the youth center began (223:07/06/69). The church received a grant of $675 to remodel the old hall and convert it into the Youth Recreation Center. Ramon Gutiérrez installed a new floor. Other men who worked on the remodel were listed in the Sunday Bulletin. They were Rev. Mike Mikan, Rev. John Haley, Rev. Bob Gilmore, Tino Luna, Tony Herrera, Danny Calderon, Tommy Gutiérrez and Ray López (223:07/20/69). The work continued until November when the Sunday Bulletin called for workers to meet on Monday 7:30PM in the Youth Center to finish the work (223:11/16/69). Thereafter, the Catholic Youth Organization used the building for its activities.
 
 The CYO was not the only occupant of the Youth Center. Occasionally the building was used for other purposes. From October 1973 until February 1974, four visiting nurses had their offices in the Youth Center. They were City and County health nurses who did home visits (249: 04/11/73). Dr. Van Weisse and Dr. Ben White also used the building on Monday nights from November 1973 until sometime in 1974 for a medical clinic (249:04/11/73).
@@ -247,6 +188,8 @@ The pastors of San José, Fr. Houser, and Fr. Mendez before him, dreamed of a pa
 In 1956, the parish took a great leap of faith and purchased three barracks from Bergstrom Air Force Base. These were for a school (211). The barracks were placed west of Oak Crest Avenue opposite the Youth Center. This is where the 3rd church was later built (193). This became known as the School Compound. The three buildings were arranged in a U-shape in order of grade level so the children moved around the circle as they grew up (12). The playground was in the middle of the compound.
 
 In 1964, San José School enrolled 306 students and had seven teachers, four of whom were Religious Sisters (223:10/11/64). The school was the sixth largest in the Diocese (223:03/21/65). The parish voted to construct a new school building and, when the new building was occupied in September 1966, the barracks were left empty during the week (235).
+
+### Child, Inc.
 
 Fortunately, in February 1966, a day care center was created at San José. The day care initially used space in the Community Center but moved to two of the buildings in the School Compound in the summer of 1966. The day care center was incorporated as Child Inc. in 1972 and occupied two of the buildings in the compound until 1986. CCD or Religious Education occupied the other building on weekends and in the evenings. The building used by CCD was called the San Jose CCD Center Building. It was used for CCD, baptismal, First Communion and first confession classes (223:05/01/75).
 
@@ -270,6 +213,8 @@ After the clinic moved out of the old convent building in 1978, the building was
 
 Sister Mary Cabralez, who was in charge of Home Visitations, lived in the building briefly in July 1983 (223:24/07/83). Eddie Reyes, a Seminarian, moved into the building to stop the vandalism that was occurring in that building and the School Building and to give him office space. The building had two guest bedrooms and two meeting rooms that could be used for CCD or youth groups (223:10/07/83). In August, Tony Lawless (a candidate for Holy Cross Priesthood) moved into the building that Eddie Reyes, also a candidate for Holy Cross Priesthood, had just vacated (223:28/08/83).
 
+### Father Joe's
+
 In September 1983, the building was rededicated as, “Father Joe’s Youth Center” in honor of Father Houser and was used by the Youth Group/Catholic Youth Organization after the old Youth Center/Bureau was vacated. The nursery also moved to Father Joe’s Youth Center (223:18/09/83). The nursery was open during Sunday Mass during the winter months (223:27/01/1985) and for special events such as Renewals and the Lenten Mission (223:07/06/1987) (223:12/07/1987) (223:28/02/1988). Because of the presence of the nursery, the building was sometimes called the Sunday Day Care Building. The nursery was moved to the old church in 1988.
 
 During the 1988-1989 schoolyear, CCD used the Old Convent for classrooms and found them inadequate (223:30/07/1989). George Ulloa and the KOC built a handicapped ramp at the Old Convent in 1992 (223:19/01/1992). The Knights were meeting in the building. In June 1993, someone volunteered to paint the old Convent but the building needed a new roof and repairs before being painted. The pastor said the parish would furnish the materials if volunteers agreed to do the work (223:27/06/1993). Subsequently the Knights agreed to repair and paint the building provided they could continue to use it as a meeting place.
@@ -282,13 +227,15 @@ Rev. Joseph Houser was the pastor of San José Catholic Church in 1954. Accordin
 
 “The Bishop’s words came as a great surprise to the People and the priests. They were also inspiring. He had confidence in them. It created enthusiasm. The cost would be fiestas and more fiestas. That was the way the People of San José fulfilled their financial needs for many years” (211).
 
+### A new church campus
+
 To facilitate construction of a new church, Bishop Reicher gifted San José parish ten acres of land for a new campus (42). The land was located south of W. Oltorf Street and west of S. First Street. Brother Lambert Barbier of St. Edward’s University and Father Edwin Bauer, Pastor of Holy Family Church on W. Johanna Street, had acquired six acres for the purpose of building a medical clinic. Their hope was to staff the clinic with religious sisters but now it appeared that none might be available. The Bishop decided that a new church for San José Parish was the greater priority (12).
 
 The gift of land did not come without conditions. Houser later wrote, “In 1955 the Bishop offered us free the land where the Church and School now (in 1966) stand. In a Parish Meeting, the people of San Jose voted to accept the gift. Our own people also voted to build a new church on the land, inviting St. Ignatius people to join us if they wished. If they did not wish, our People decided to have their own buildings. Our kind Bishop graciously consented to all, but (he) promised that someday we would have to be a territorial parish and accept (parish) limits” (223:01/01/67).
 
 The site the Bishop offered was 3/8-miles south of the existing church building on W. Mary Street. The land had road access to both Oltorf Street and S. First Street. It was on the eastern slope of a rise west of East Bouldin Creek. The site was a grove of ancient live oak trees and some pasture surrounded on three sides by houses that were under construction or were recently built. East of and downhill of the site was cleared field that fronted on S. 1st Street. José Rocha, Luis Calderón and other men from congregation helped clear the tract of undergrowth in preparation for building (12). It is said that Fr. Houser worked alongside the men to clear the building site of brush (3).
 
-### The second church
+### The Cafetorium
 
 The architectural firm of Walter Cocke, Jr. and Company of Waco designed a parish auditorium that would serve on a temporary basis as a church (28). The Pastor later explained that, “the church was built to be the future Hall-Cafeteria which they now usually call Cafetorium” (223:11/11/62). He did not explain why the parish decided to build a cafeteria rather than a church but he was probably already laying plans for a parochial school operating in permanent buildings. Perhaps Houser was more interested in building a school than a church. Eight years later, he reminded the parishioners in the Sunday Bulletin that the proceeds from the Wednesday night bingo would be used to pay the interest on a loan to build a school. “Then we could start the new Church after that” (223:06/14/64).
 
@@ -298,7 +245,7 @@ In January 1956, the rectory from the old San José church was moved to its curr
 
 The Solemn Blessing was scheduled for February 5, 1956 but was delayed until February 19 because of an ice storm (28). Father Mehling, C.S.C., was making his Provincial visit when the ice storm closed down the City and the Bishop asked him to proceed with the Simple Blessing on February 5 (28). On March 19, 1956, the feast day of San José, Bishop Reicher traveled to South Austin to bless the new San José church building (12).
 
-### 1956-1975
+### The sacristy was remodeled in 1969
 
 In 1969, the Parish Council approved a plan to redo the sacristy of the church (223:07/20/69). Parishioners were found who did most of the work on a volunteer basis. Paul Samaniego and Alberto Mercado designed and built new cabinets for the sacristy while Pete Castillo and Julian Herrera varnished and finished them (223:01/31/71). These men were professionals in their trades.
 
@@ -320,7 +267,7 @@ The choir sang at the ceremony and Holy Cross Fathers Mike Mikan and Michael Sim
 
 The income from the fiesta that accompanied the ceremony was $1,600 (223:20/07/75). Some of the money spent on the renovation was borrowed. The Breakfast Ladies paid $1,860 on the loan on March 1st of each year until the debt was paid off in 1985 (233:27/02/83) (223:12/02/84). The parish also had other debts that were outstanding. The final payment on the school loan was not paid until July 1, 1986 and the final payment on the Community Center debt was not paid until July 1, 1989 (223:08/07/84).
 
-### 1976-1983
+### Maintenance and Repair, 1976-1983
 
 Maintenance and repair work did not stop after the renovation project was finished. In April 1976, Paul Samaniego, Pete Castillo, Tom Longoria and Ray Cortez helped build a new confessional and a room of reconciliation (223:25/04/76) and Mrs. Romana Salazar created displays on the back wall of the sanctuary (223:20/06/76). During the annual pilgrimage to Mexico City in December 1978, roses were brought back from the Basilica of Our Lady of Guadalupe in Mexico City and Paul Samaniego agreed to construct a case to display the roses (223:17/12/78).
 
@@ -334,6 +281,8 @@ In May 1983, the pastor said that the last two Sunday Masses were “standing ro
 
 The Bishop first approved the plan to remodel the church according to the plan approved at the Parish meeting (223:22/05/83) but, in July, the Bishop instructed San José not to borrow money for the renovation because the parish still owed $100,000 for the School and the Community Center.
 
+#### Parishioners did the work
+
 The pastor was determined to proceed even if the Parish could not borrow the money. He warned the parishioners that, “We need to keep our income up so we can put aside some money to pay for our remodeling of the church this summer” (223:15/05/83). However, the Sunday Collection decreased during the summer and by July the parish was $17,000 short of its goal. The pastor asked for a special donation to raise the money (223:24/07/83). As a result, the Sunday Collection increased from about $2,200 per week to $3,200 for the next four weeks (223:14/08/83). Four extraordinary donations totaling about $700 were also received (223:14/08/83). In September, Mrs. Lou Hall donated $2,000 for the remodeling project (223:11/09/83) but the check was returned to her because she was placed in a nursing home and needed the money (223:18/09/83). After the summer school holidays, collections remained at about $3,400 per week (223:18/09/83).
 
 An insert in the Sunday Bulletin of July 24 announced that, “Work has begun to remove the inner brick wall. A beam and columns will be installed in place of the wall in order to open that area so another row of pews can be added. This will give us another 126 seats. By arranging the pews in two rows like we have now, we added 60 additional seats. With these two changes and others, we will have an additional 250 seats over our previous capacity. A few other changes will continue to increase our seating capacity” (223:24/07/83).
@@ -342,6 +291,8 @@ The church renovation project involved removing a load-bearing interior wall. A 
 
 In an effort to save money, the old church light fixtures were offered to parishioners for $5 each (223:30/10/83). Everything possible was done to cut costs. Used solid oak church pews were purchased for $2,240 (1/3 the cost of new pews) and light fixtures and ceiling fans were purchased wholesale at a savings of 65%. “Since the collections have been good and our dances, breakfasts, and fiestas have been successful, we have been able to pay for our construction as we go along. So when we finish, it will all be paid for- thanks to you,” said Fr. Underwood (223:06/11/83).
 
+#### Many men volunteered
+
 The job involved many volunteers. Persons who assisted with the remodeling of the church in July were listed in the July 31, 1983 Sunday Bulletin. They were Paul Samaneigo, José Samaniego, Lorenzo Ramírez, Luis Martinez, Juán Flores, Rick Knoedel, Daniel Acuña, Emilio Tapia, Daniel Rodriguez, Ray Cortez, Rudy Yanez, Jesse Hernandez, Tony Verver, Salvador Reyna, Alfonso López, Mike Hernandez, Rufus Davila, Lorenzo Rodriguez, Cruz De Hoyos, Cruz Vasquez, Gregorio Trejo, Gumencindo Castro and his daughters. Mary Longoria and Macrina Tijerina provided food for the workers (223:31/07/83).
 
 In August, the following men worked to renovate the church and the barracks: Enrique Saenz, Paul Samaniego, Joe Luna, Enrique Flores, Ray Cortez, Ray Vasquez, Sabino Cruz, Juan Rodriguez, Bob Trochta, Agustin Arredondo, Elia Flores, Consuelo Reyna, Joe Treviño, Francis Treviño, Marcela Lune, Virgil Almogabar and Marcelina Vasquez (223:14/08/83).
@@ -349,6 +300,8 @@ In August, the following men worked to renovate the church and the barracks: Enr
 As work continued into the fall, the pastor faithfully recorded and acknowledged the work done by his parishioners. He noted that Benito Govea had a dump truck that he purchased after he retired from his job as a deliveryman for a lumber yard. The truck was his hobby and he used it often to help the church (223:07/08/83). Mr. León Hernandez donated his moving van and his time to drive to Alvin, Texas, to pick up the sixteen used church pews. Ruben Molina accompanied him on the trip. Richard Knoedel did the wiring in the church renovation (223:13/11/83). On November 20, the pastor noted that Pete Castillo, Tomas Rodriguez, Arthur Solalinde, John Treviño, Carlos Samilpa and Paul Samaneigo painted the church last Saturday and that Joe and Frances Treviño cooked lunch for them (223:20/11/83). The following week, the pastor noted that Polinar Reyes, Pete Castillo, David Tello, Bilbert Tello and Paul Samaneigo painted the church last Saturday and Luis Prado painted in the church all of last week (223:27/11/83). Paul Samaneigo and Sabino Cruz both worked at half salary during the renovation of the church (223:01/01/84). Manuel Castillo hauled away the pile of bricks from behind the Church. These bricks came from the interior wall that was removed (223:08/01/84) (223:05/02/84).
 
 The carpet for the church cost $11,655.75. The men of the church installed it. The Guadalupanas donated $3,000 and the Breakfast Groups donated $8,671.20 to pay for the carpet (223:11/12/83). In January 1984, AstroTurf rugs were placed at the church entrance to collect dirt from shoes (223:15/01/84).                   
+
+#### The women also helped
 
 Not all of the helpers were construction workers. María Galvan, María Vasquez and her daughter, Eloisa Cruz, and Mary Sandoval cleaned the church on a weekly basis for many months during 1983 (223:20/11/83). Ray Cortez, Ruben Molina Sr. and Ruben Molina Jr. both worked in the church. María Galvan, Mary Sandoval, Jesse and Luisa Hernandez cleaned and decorated the church in 1984 (223:01/01/84). María Galvan, Eloisa Cruz and Mary Vasquez cleaned the church each Friday and Trine Ramírez cleaned the rectory once a week. Molly Resas prepared food for the priests every Wednesday (223:29/01/84).
 
@@ -415,6 +368,8 @@ Mexican students who were not enrolled in the school at Guadalupe Church usually
 
 In 1923, East Avenue School, later named Comal Street School, opened as a segregated Mexican school on the other side of Austin (32). All Mexican students from Palm, Metz and Bickler schools, who were attending school with Anglo students, were transferred to this school (231). Comal Street School was closed in 1936 after Zavala School opened (231).
 
+### Mexican Americans attended Anglo Schools
+
 Usually, Mexican students in Austin attended the nearest Anglo school. There was no Mexican school in South Austin. There was a Negro school where St. Elmo Elementary is today and there was a Negro school in the Brackenridge neighborhood located between East Bouldin Creek and Congress Avenue (253). Mexican students from the neighborhood of San José church attended Becker Elementary School, built in 1939, and then Fulmore School on Congress Avenue for the 7th and 8th grade. They transferred to Allen Junior High School for the 9th grade. Few Anglo students and even fewer Mexican students stayed in school past the 9th grade in 1940.
 
 In April 1945, Rev. Mendez observed that there were 100 Mexican children attending three public schools within a mile of San José Mission (77). He also observed that there had been a 20% increase in the number of Mexican families buying homes near the mission (78). After San José Church was built, a large number of Mexican families moved to the Bouldin Addition neighborhood from rural parts of Travis, Hayes and Caldwell Counties as well as East Austin.
@@ -423,31 +378,25 @@ Fr. Mendez recognized the need for a parochial school. He began seeking funding 
 
 By 1946, the number of children whose parents were registered at San José Church and who were attending public schools with American children had increased to 130. Bishop Lucey agreed that the parish needed a school (82) but the parish had other priorities and nothing further was done until 1956.
 
-### 1956
+### San Jose Parochial School, 1956
 
 In 1955, work began to relocate San Jose Church from the small site on W. Mary Street to the ten-acre campus south of Oltorf Street. The second San José Church opened for services in February 1956 on the new campus. That year, the parish purchased four surplus military barracks from Bergstrom Air Force Base for $45 each (211) (223:07/28/63). One was used as the parish hall and the other three were arranged in a U-shape and made into the parish school (12).
 
 The three barracks was known as the School Compound. The School Compound was located where the third church was built in 1987. The buildings were arranged in order of grade level so the children moved around the circle as they increased in age.
 
-### 1957-1958
-
 Classes at San José School began in September 1957 with First Grade and Kindergarten (211) (86). In 1957, there were 75 Kindergarten and seventeen 1st grade students with two teachers (Mrs. Elizabeth Garcia and Miss Kay Loera) (235). In the spring, seventy Kindergarten students graduated with each receiving a diploma from Father Houser (235).
-
-### 1958-1959
 
 A grade level was added each year (211). In 1958-59, the teachers were Miss Eloise Hipolito, Miss Kay Loera and Mrs. Isabel Garcia (Photo081-086). A third barracks was purchased and Miss Hipolito was hired to teach a class of forty children (235).
 
-### 1959-1960
+### Teaching Sisters Arrived, 1959-1960
 
 Fr. Houser recalled that, “the Mother General from France (offered Holy Cross) Teaching Sisters” in 1957 (223:07/28/63) but, for the first two years, the teachers were lay women. In September 1959, three Sacred Heart Sisters from San Antonio arrived to take charge of the school (86) (211). The barracks that had been used as the church hall was converted into a convent where the Religious Sisters lived. Another surplus military building was acquired and renovated as the parish hall (12). During the 1959 school year, 174 children were enrolled in grades K-3 (86).
-
-### 1960-1961
 
 Another grade level was added in September 1960. Four Religious Sisters taught grades One to Four and Miss Yolanda Sanchez was employed as the Kindergarten teacher (235). When the schoolyear ended in May 1961, Miss Kay Loera was the Kindergarten teacher (223:05/28/61). Miss Yolanda Sanchez and Miss Ramona Hernandez taught summer school in the parish hall during June, July and August (223:05/27/62). Summer school was open five days each week from 9:00AM to 12 noon. The children were taught arts and crafts. The cost was 25 cents per day (223:06/03/62).
 
 Children who attended public school were required to attend Doctrina or religious education classes on Saturday morning during the schoolyear (223:05/14/1961). There were almost as many children enrolled in religious education classes at San José as there were children enrolled in the parochial school (223:10/21/62) (223:11/03/63) (86) (223:05/17/64). The religious education program was a large operation involving ten to fourteen volunteer teachers, two or three drivers and a number of other helpers. The program became even more important in 1962 when Pope Pius 10th made the Confraternity of Christian Doctrine obligatory for all Catholics (223:09/16/62). In 1963, 262 children enrolled in the CCD program at San Jose parish (223:11/03/63).   
 
-### 1961-1962
+### Grade Five Added, 1961-1962
 
 In September 1961, a fifth grade was added to San José School (223:05/14/61). When school opened on September 5, the school employed the following teachers: Kindergarten-Miss Yolanda Sanchez, First Grade-Sister Rose Therese, SSCJ, Second Grade-Sister Mary Frances, SSCJ, Third Grade-Sister Anne of the Eucharist, SSCJ, Fourth & Fifth Grades- Sister Magdalen, SSCJ (223:08/27/61). Sister Magdalen also served as the principal and the Superior (223:09/03/61). Mrs. Gloria Ramírez also taught at the school, perhaps as a substitute (235).
 
@@ -459,7 +408,7 @@ In July 1962, Sister Magdalen of the Cross, SSCJ, announced her departure after 
 
 In addition to the Religious Sisters, who were paid $70 per month (223:02/03/63) and the other teachers, the school depended on unpaid volunteers to maintain the school and help with the students. In January 1963, the lunchroom mothers included Chairman Angela Garcia; Vice-Chairman Antonia Guardiola and Helpers: Jane Alleman, Celia Guerra, Raymunda Rios, Estella Masters, Lenora Simmons, Rosalie Moreno, Trinidad Ramirez, Eloisa Botello, Nettie Rocha, Helen Lawler, Janie Martinez and Estafanie Carillo (223:01/27/63). Volunteers maintained the school (223:04/16/61), raised funds (223:05/14/61), served a mentors (223:09/02/62), acted a drivers and chaperons (235) and performed a variety of other functions to keep the school open. The room mothers in 1963 were: Grade 6 Mrs. Antonia Guardiola, Lydia Treviño; Grade 5 Mrs. Mary Gonzalez; Grade 4 Mrs. Gloria De Anda; Grade 3 Mrs. Scott and Estela Masters; Grade 2 Mrs. Celia Guerra and Angie Garcia; Grade Mrs. Toni Juarez; Kindergarten Mrs. Barbara Gonzalez and Stephanie Carillo (223:03/10/63).
 
-### 1963-1964
+### 306 pupils in K-8, 1963-1964
 
 When Austin schools opened on September 3, 1963, San José School enrolled students in Kindergarten and seven grades with four Sisters and two Lay Teachers (223:08/11/63). The teachers were: Sister Louise Marguerite, Superior and Principal; Sister Maurice Maria; Sister Elias Concepcion; Sister Lucille Agnes; Mrs. Alfonso Ramirez and Miss Yolanda Sanchez (223:08/25/63). In 1964, there were 306 pupils enrolled in grades K-8 (86). Beginning in 1958, the school began participating in the Federal School Lunch Program that provided free or discounted lunch to needy students. In 1962, an average of 65 children was enrolled and, in 1963, an average of 81 children was enrolled in the program. Fr. Houser said that the school received $1,643 from the government for the program. He said he ate lunch in the cafeteria most days during the last five years (223:10/13/63).                                                                                                 
 ### 1964-1965
@@ -486,7 +435,7 @@ The school’s second 8th grade graduating class consisted of Henry Calderon, Su
 
 During the summer, the Federal Government Anti-Poverty program paid Sister Patricia and two teachers to teach summer school for six weeks. Fifty-six students attended the classes (235). Construction on the new school was nearing completion and the church community raised money for furnishings. In June, various fund raising events raised a total of $185.35 to purchase tables and chairs for the kindergarten. One family sold raspas and earned $3.25. Several members of the Sociedad del Sagrado Corazón sold cakes and earned $18.00. The Catholic Youth Organization of San Jose raised $30. A rummage Sale raised $57 and a Cake Sale sponsored by the Parent Teacher Association raised $77.10. The pastor wrote, in the Sunday Bulletin, “Thank you very much, every individual” (223:06/26/66).
 
-### 1966-1967
+### The New School, 1966-1967
 
 The new school building was ready for occupancy in October 1966. The new building was a two-story building with brick exterior and concrete block interior with terrazzo floors. The architect was Bill Scudder of Austin and the general contractor was C and H Construction (61). It had ten classrooms, a library, a reading room and an office and was air-conditioned (12) (86) (92) (211) (235).
 
@@ -540,7 +489,7 @@ In March 1970, the Parish Council estimated that in 1969 payments on the school 
 
 During the summer, Sister Angelina was in charge of a government-sponsored Summer School program (223:05/17/70). The program was free and was taught by the Sisters.  The “head-start” program was for children entering first grade in September. The classes began at 8:30AM and ended at 11:30AM during the work week (223:06/07/70).
 
-### 1970-1971
+### 91 pupils in K-6, 1970-1971
 
 Registration for the 1970-1971 schoolyear began on August 16 with school scheduled to begin on August 31 (223:08/16/70). The children were required to have a vaccination certificate showing shots for polio, smallpox, measles, tetanus and diphtheria to enter kindergarten, first grade and seventh grade (223:08/23/70).
 
@@ -558,7 +507,7 @@ The Parish Council continued to study the feasibility of operating the school. T
 
 The parish relied on income from the three weekly bingo games to meet its expenses. In 1971, $11,467.50 from the Monday and Wednesday bingo games were used to pay for principle and interest on the school debt. Another $14,026.25 was used to pay the debt on the Community Center. $9,640.81 was raised by the PTA from Friday Night Bingo games. This too was spent to maintain the school (223:13/02/72).          
 
-### 1972-1973
+### The school's final year, 1972-1973
 
 In August 1972, San José Parish hired a coordinator of religious education to train parishioners for a “total religious education program (97). Ninety Catechists were trained for the CCD program (88).
 
@@ -584,23 +533,23 @@ The old building is in excellent shape although the utilities (plumbing and wiri
 
 Before San José Church was built in 1940, the small congregation met on a platform on Luís Calderón’s farm (221) or in the chapel of the rectory of St. Ignatius Church on Johanna Street (218). The stone church that was completed in June 1940 had neither a rectory nor a parish hall. The men of the parish built a platform abutting the rear of the church for use during fiestas but this was not an adequate substitute for a parish hall (25). The pastor, Rev. Mendez, listed the construction of a rectory and parish hall as among his top five priorities in 1945 (46).
 
-### 1948
+### A rectory replaced the parish hall, 1948
 
 When Rev. Houser took charge of San José Parish in 1948, Bishop Reicher recommended that the parish build a rectory (211). At this time, the pastor was living in a rented room at St. Edward’s University. The church had a sacristy but no office or meeting space. To this end, Houser purchased lot 6 next to the church on W. Mary Street where there was single-story house. Initially, the old house was remodeled and used as the parish hall. It was used for dances, fiestas and meetings. Shortly afterward, Rev. Frank Webber, C.S.C., and his team of carpenter priests demolished the old house and built a two-story rectory in its place (12). The downstairs of the rectory became the parish hall.
 
 Somewhat later, possibly in June 1950, barracks from a US Army base in Bastrop County called Camp Swift were purchased for each of the missions of San José. The men of each church volunteered to fix these buildings into parish halls for meetings and celebrations (211). San José purchased a lot at the corner of S. 2nd and W. Annie Streets where “the Barracks Building” was situated (210). The building had electrical and water service and was used as the church hall. After the second San José church was built, the building was moved to the new campus and used for bingo games and Boy Scout meetings. After the barracks was moved, Houser sold the lot on W. Annie Street to Luís Calderón who sold it to Walter Garcia. Walter Garcia built a house on the lot (193).
 
-### 1957		
+### The parish was relocated, 1957		
 
 When the parish moved to its new campus south of W. Oltorf Street in 1957, the parish purchased four surplus military barracks from Bergstrom Air Force Base (211). Three of the buildings were remodeled as classrooms for a parochial school. In September 1959, three Sacred Heart Sisters from San Antonio arrived to staff the San José school (12). The existing Parish Hall was converted in a convent where the three Religious Sisters would live and another surplus military barrack was purchased for use as a parish hall (12) (235).
 
-### 1968
+### The parish hall needed repairs, 1968
 
 By 1968, the surplus Air Force barracks that served as the parish hall needed major repairs. Both the floor and the roof were in poor condition. The condition of the hall was brought to the attention of the Parish Council and, in its April meeting, the Parish Council voted to repair the existing building. At the same meeting, the council reconsidered the issue and voted to study the situation further. Later, the Parish Council voted to study the feasibility of building a new parish hall to replace the existing military-surplus building (213).
 
 In June 1968, the Parish Council voted 12 to 2 to build a new parish hall rather than repair the old building (213). The next month, the entire parish was invited to a meeting to discuss the plan to build a new parish hall (223:07/07/68). By August, preliminary plans were approved (213). The January 5, 1969 Sunday Bulletin presented the details of the plan. C&H Construction was the lowest bidder at $114,270.00. Additional costs were the architect’s fee of $7,200.00 and options such as an air conditioning system and parking lot improvements. The lowest bid for an air conditioning and heating system was $9,000.00 and the bid for asphalt pavement in front of the building was $6,000.00 (223:01/05/69). The 60’ x 112’ building would contain a kitchen, offices, a large game room, a concessions area and storage space. The total cost was estimated to be $134,000 (94). When the decision was made to build the Community Center, the parish’s only outstanding loan was that of the school (223:06/12/66).
 
-### 1969
+### The San Jose Community Center, 1969
 
 The ground breaking ceremony for the San José Community Center took place on January 24, 1969 (94). The new community center itself cost the church $89,274 inclusive of furniture. A loan of $80,000 at 4 ½ % was used to finance the construction (213). The pastor, Rev. John Haley, and the Assistant Pastor, Rev. Michael Mikan, realized that the parish would struggle to pay the debt so a fund raising campaign began in February soon after construction began. Enrique Saenz agreed to chair the campaign, called “Increased Income Campaign”. The parish recruited 100 volunteer workers who agreed to ask parishioners to make weekly donations to a fund to pay for the new community center (95). Bishop Reicher came to San José and blessed the fundraising campaign and its volunteers (95).
 
@@ -608,7 +557,7 @@ In July, the Parish Life and Social Committee of Parish Council announced in the
 
 Ben Vega was initially hired to manage the San Jose Community Center (213). Over the next three years, Ben Vega, Sam Guerra, Albert Mercado, Glen Rosendale, Raymond Castro and Byron Highfill managed the Community Center at different times (223:05/24/70) (223:06/06/71) (249: 18/11/73). The Center was an ideal location for dances and, during 1970 and 1971, fifty-four dances were held there.
 
-### 1972
+### Bingo, 1972
 
 The hope was that the income from the bingo games on Wednesday, Friday and Sunday and from rentals of the center for parties and events would pay for the cost of operating the Community Center and making its debt payments. The pastor hoped that the Community Center would be rented with the proceeds used for the San José School (94). The annual payment on interest and principle for the Community Center was $13,000. Annual payments on the school debt were an additional $12,000. In part, the plan worked. In 1972, the Socios paid $13,641.25 towards the hall debt out of the proceeds from the Monday and Friday Bingo games (223: 25/03/73). Usually, income from the Friday Bingo games, that the PTA managed, was used to pay down the school debt (223: 13/02/72).
 
@@ -616,7 +565,7 @@ Unfortunately, income from the Community Center from outside groups barely offse
 
 As expected, making the payments on the debt for the Community Center and school was difficult. Nevertheless, by the summer of 1971, the Community Center was able to generate enough income to contribute $500 to help the parish purchase a new station wagon (223: 13/02/72). The Socios, the Guadalupanas, the Catholic Youth Organization (CYO), the Community Center fund, the CCD and the PTA each contributed $500 to purchase a $3,000.00 station wagon for church use (223: 13/02/72).
 
-### 1974
+### South Austinn Neighborhood Center, 1974
 
 In 1974, the San José Community Center was rented to the City of Austin as office space. In February, three nurses from the Austin Travis County Health Department had an office in the Center. A nurse was in the office all day on Fridays to serve walk-ins but the main function of the nurses was to visit school clinics and homes (249: 03/02/74). Free financial advice was available at the community center 9-10AM every Saturday morning and free income tax preparation was offered to parishioners from 10AM to noon each weekday (249: 17/02/74).
 
@@ -626,37 +575,58 @@ The teenagers and young adults who worked for the Neighborhood Youth Corps were 
 
 August 5, 1974, was the last issue of the Samaritan. Both of its editors (Miss Vela and Mrs. Carlile) returned to their teaching jobs. The staff and the programs of the Neighborhood Center changed after August 1974. The Rent A Kid and the arts and crafts programs were terminated and new volunteers were recruited to run the Samaritan newsletter (249: 21/07/74). The Medical Clinic stayed open for the summer months but its schedule changed (249: 28/07/74). In October, some of the programs formerly offered by the South Austin Neighborhood Center were moved to Becker Community School on West Milton Street. These program included the adult education (GED) classes and sewing and crafts classes (223:29/09/74). In November 1974, the South Austin Neighborhood Center was still located in the San Jose Community Center (250:17/11/74). Sometime later, the South Austin Neighborhood Center was moved a quarter-mile east to a building adjacent to Gillis Park.
 
-### 1978
+### Outpatient Clinic, 1978
 
 In July 1978, the City of Austin announced that it wanted to rent the Community Center for use as a medical clinic. The City Council had ordered Brackenridge Hospital to reduce its outpatient load by placing most its patients in clinics in their neighborhoods. Since the clinic for South Austin was not ready for occupancy, South Austin would be without a medical clinic for a period of 12-18 months. The City asked to rent the Community Center for a clinic until they could move into their new clinic adjacent to the South Austin Neighborhood Center (223: 07/16/78). As a result, Brackenridge Hospital leased most of the San José Community Center for an outpatient clinic during 1979 (12).
 
-### 1983-1986
+### Dance Venue, 1983
 
 The Community Center was remodeled in April 1974 when the Neighborhood Center moved to the building (249: 28/04/74). It was remodeled again in January 1986. At that time, a folding dividing wall was installed. The divider allowed two functions in the Center at the same time since the dividing wall was sound proof (223:02/02/1986). Raymond Castro and Paul Samaniego welded the braces for the door (223: 19/01/1986). The folding dividing wall was removed when the Center was renovated again about fifteen years later.
 
 Over the years, the men and women of the parish maintained and repaired the Community Center. In 1983, Maintenance of Buildings and Grounds was listed as one of twenty-three ministries of the church (223:10/04/83). Until Paul Samaneigo was hired to supervise construction of the third church in February 1986, Lorenzo Maldonado was the only full-time maintenance man for the parish’s buildings and grounds (223:02/02/1986) and the parish relied on volunteer labor for maintenance.
 
 Between 1983 and 1988, the following names of parishioners appeared in the Sunday Bulletin as having worked to repair or maintain the San Jose Community Center.  
+
 Boccanegra, Ernest
+
 Castro, Michael
+
 Castro, Raymond
+
 Cavazos, Emilio
+
 Cortez, Ray
+
 Flores, Juan
+
 Govea Sr., Benito
+
 Govea, Ausencio
+
 Jimenez
+
 Moreno, Pete
+
 Pérez, José
+
 Ramirez, Lawrence
+
 Rivas, Domingo
+
 Saenz, Enrique
+
 Salas, Alcario
+
 Samaniego, David
+
 Samaniego, Paul
+
 Treviño Jr., Eustolio
+
 Treviño Jr., Israel
+
 Vasques, Rufus
+
 Amezquita, Joe
 (223:27/02/83) (223:27/02/83) (223:13/03/83) (223:06/03/83) (223:10/04/83)
 (223:08/05/83) (223:22/05/83) (223:12/06/83) (223:19/06/83) (223:26/06/83)
@@ -667,6 +637,8 @@ After the South Austin Neighborhood Center moved to Durwood Street in 1975 and t
 In 1983, lay organizations sponsored about one dance every month in the San José Community Center. In 1984 and 1985, the parish itself began sponsoring a dance event in the church hall every month as a fundraiser. The pastor created a Dance Ministry and, in 1985, the net income from the Dance Ministry was $12,470.55. In 1986, the Dance Committee sponsored a dance every two months. Dances continued to be well supported until after 2000 when participation declined. The parish no longer sponsors dances at the Community Center.  
 
 The final note on the Community Center debt of $3,500 principal plus interest was due on July 1, 1989 (223:08/07/84) (223:03/02/1985). By then, the parish had assumed a debt for a third church that required semi-annual payments of $92,500.00 (223: 04/10/1987). There is no mention in the church records that the pastor ceremoniously burned the loan documents for the Community Center although he did not, apparently, roll the note over, as he had done for the school note. Instead, as it had done in 1969, the parish announced a program to increase Sunday collections to the amount needed to pay for the new church (223: 11/10/1987). A year later, the pastor noted that the Sunday Collection was only a few hundred dollars short of the goal set the year before. He noted that if each full-time wage earner donated one hour’s pay each week, “we would have no problem meeting our debt service” (223:07/08/1988).
+
+### The kitchen was renovated, 1991
 
 In 1991, the kitchen was refitted to meet the City Sanitation Code (223:17/02/1991) and Max and Connie Cavazos cleaned and reorganized the kitchen (223:24/02/1991). The church purchased a second deep fryer for the Lenten fish fry (223:17/03/1991). Over the subsequent fifteen years, the kitchen fell out of compliance with the City Code and, lacking the funds to do the necessary renovations, food prepared in the kitchen can no longer be served to the general public.
 
@@ -690,7 +662,7 @@ The pastor inserted a box in the Sunday Bulletin called Building Fund News that 
 
 By the time the building permit for the new church was issued in February 1987, the shortage in the building fund had grown to $14,304.97 and the Sunday Collection goal had increased to $9,500 to include the Cathedraticum (8% of total Parish income sent to Chancery Office for Diocesan Operation) (223:15/02/1987). However, the Sunday Collection began to slowly increase and in October it exceeded $8,000 for the first time. The pastor then estimated that the Collection must exceed $9,000 per week to make up for the shortage (223:05/10/1968). The next week the Sunday Collection was $10,131.58. The pastor commented that “generous collections like this allow us to put more in savings toward building our new church” (223:12/10/1968). Parishioners also made special donations to the building fund that helped to close the gap between what was needed and what was contributed to the building fund (223:16/11/1986).                  
 
-### The building permit
+### Getting the building permit
 
 Getting the building permit took eight months and delayed the start of construction until March 1987. In June 1986, it was thought that construction would begin in early September (223:08/06/1986). However, the plans were not finished until September 5. Permitting was estimated to take 6 to 8 weeks after that (223:17/08/1986). Permitting was again delayed because the church was five feet too tall and the office and rectory violated impervious cover rules for the small lot they were built on (223:07/09/1968). The architect Leo Danze, the site superintendent Buddy Tennison, an attorney James Pinedo and Underwood attended the October City of Austin Board of Adjustment meeting and were granted the necessary variances (223:19/10/1986). In December, the City approved the Site Plan (223:28/12/1986) (223:04/01/1987) and the final plans for the new church were submitted January 19 (223:02/01/1987). The Building Permit was issued in February and work began on the new church on February 15, 1987 (223:15/02/1987).
 
@@ -736,7 +708,7 @@ In January 1988, Ray Cortez supervised the installation of carpets in the new of
 
 Robert Haynes continued to work installing the glass windows and Ray Cortez installed carpeting in the new church (223:21/02/1988). Rev. Herman Reith, Susan Overbey and others planted a border of plants around the church (223:13/03/1988) and Frank Lara printed the outdoor signs (223:14/02/1988). The pastor announced that no votive candles would be burned in the new church until two shrine rooms were built (one for Our Lady of San Juan and one for the Sacred Heart) (223:17/04/1988).
 
-### The second payment
+### Making the second payment
 
 The pastor explained that the Sunday Collection must average $10,300 per week so $3,600 per week could be saved to pay the note on the new church. “We had to borrow an additional $200,000 for the following: $40,000 to make our first payment on the new church due to low collections during the summer; $185,000 extras and change orders for the new church not included in the original plans; $25,000 needed to construct in the old church six classrooms for CCD and a nursery” (223:01/11/1987).
 
@@ -748,7 +720,7 @@ On November 8, tithing began with a Sunday Collection of $12,757.55 (double the 
 
 During 1988, the Sunday Collection ranged from $7,990 to $13,135 (223). On the Sunday the new Church was dedicated, May 1, the Sunday Collection was $15,640.53 (223:08/05/1988). From the beginning of the year until April 17, the pastor placed a box on the third page of the Sunday Bulletin tracking the amount of money in the building fund. By April 15, the parish had saved $90,000 of the $92,500 needed to make the April 15, 1988, payment on the church note (223:17/04/1988) (223:20/12/1987) (223:19/07/1987).
 
-### The church was dedicated
+### The church was dedicated in 1988
 
 In February the church staff welcomed parishioners to an open house at the rectory and office from 15 minutes after each Mass. The new offices and rectory were blessed after the 11:00AM Mass (223:07/02/1988). Mr. and Mrs. Lawrence Ramirez and Stella Trejo helped during the Open House (223:14/02/1988). Benito Govea and son, Jimmy Guzman, Frank Velasquez and Becky Arredondo helped move the office into the new building (223:07/02/1988). It would still be five to six weeks before the church was ready for occupancy (223:28/02/1988).
 
@@ -756,7 +728,7 @@ The church was ready for use on April 17 and a number of people helped to move i
 
 The dedication ceremony was set for the Vigil of St. Joseph the Worker, on Saturday, April 30 at 4:30PM (223:20/03/1988) and, on that day, Bishop John McCarthy came to dedicate the new church. The pastor advised parishioners not to invite their friends because the church could not hold them all (223:24/04/1988). 1,000+ persons attended the dedication ceremony. (The church capacity was 1600 persons). 1,400 persons attended the First Communion Mass the following day when 140 persons took their First Communion (223:08/05/1988).
 
-### The third payment
+### Making the third payment
 
 Work continued on the new church after it was opened for use. Stella Rodriguez installed carpeting at the entrances of the church (223:19/06/1988) and Henry and Olivia Guerrero, who owned Guerrero Carpets, donated and installed outdoor carpet in front of the new church. They also cleaned the carpet in the old church (223:14/08/1988).
 
@@ -773,6 +745,8 @@ Every Saturday morning for several years, a group of women met in front of the C
 The floors were not carpeted throughout the building and, in October 1992, Gilbert Garcia sealed the floors with a clear sealer. The church paid only for the material. He also sand blasted the red tile and concrete at the entrance of the church, “that became slick like ice when wet” (223:04/10/1992). Every year, prior to Advent, the church was closed to strip and wax the floor and to change light bulbs (223:28/11/1993).
 
 A local florist gave the church a quote of $75 per week for two arrangements of flowers for the church. The pastor was looking for donors and placed Martha Davila in the church office was in charge of the flower calendar. The name of the donor and the person memorialized were printed in the bulletin (223:20/06/1993). During the next five months, donors were found who paid for the flowers on eleven occasions (223).
+
+### The final payment was due in 2007
 
 After the third payment on the church loan, the loan payments became almost routine although they continued to challenge the parish administrator until the final payment was made in April 2007 (223:19/07/1987). Making the payment depended completely on the willingness of the parishioners to contribute to the Sunday Collection. Fortunately, the next two pastors of San Jose Church, Rev. Kirby Garner and Rev. Tom Frank, were wise administrators and were able to make the payments.
 Contractors and donors
@@ -841,13 +815,13 @@ Leo Danze was a Catholic and designed several churches for the Diocese of Austin
 
 Leo Danze was the principal architect for the Austin firm of Danze and Davis, 4701 Spicewood Springs Road, Austin. The firm designed custom homes as well multifamily and commercial buildings (Danze & Davis website).
 
-## San José School
+#### San José School
 
 The architect of the school building was William J. Scudder. He met with the PTA in May 1965 to introduce them to the plans for the school (223:05/09/65). The contractor was C & R Construction Company.
 
-### Builders
+## Builders
 
-#### 1939-1941
+### 1939-1941
 
 The first San Jose Church, at the corner of W. Mary and S. 3rd Streets, was built almost entirely by volunteers. The Weise Brothers, contractors, were hired to perform some work. Perhaps they poured the concrete foundation or laid the flagstone floor. They were also the contractors for the first St. Ignatius Martyr church on W. Johanna Street.
 
@@ -855,14 +829,14 @@ Men with trucks and cars provided transportation
 
 Eliseo Gutierrez sold the cedar posts used to frame the walls of the building. José and his brother Gabriel Gutierrez volunteered the use of their truck to carry rock. Rev. Peter Mueller, C.S.C., provided transportation when the builders began working in Buda and Creedmoor.
 
-#### The stonemasons were parishioners
+### The stonemasons were parishioners
 
 The volunteers who helped build the church at 715 W. Mary Street included José Botello Sr., José Botello Jr., Luís Calderón, Manuel Castillo, Carlos Fabian, Luís Fabian, Gregorio Fabian, José Loera, Alfredo Moreno, David Ruiz and Aventura Sosa. Father Alfredo Mendez directed the work. Simon Botello was the foreman. Alfredo Moreno, Aventura Sosa, Luís Calderón and Simón and José Botello were stonemasons. Other men included John Botello and Estanislado Calderon (3). José Botello later became a parishioner at San Francisco Javier Church (Parish History, sfjcc.org, accessed September 2018).
 
-#### Altar boys helped
+### Altar boys helped
 
 The altar boys, Chris Sosa, Pete Castillo, Vincente Flores Jr., Henry Bargas and Guadalupe (Lupe) Alba, worked as helpers. They helped collect the stone for the walls and mixed and carried cement for the stonemasons (14). Genaro Galarza, a carpenter, and Felipe Alba also helped.
 
-#### 1944
+### We Worked, 1944
 
 After the first church was finished, other Mexican families moved to the area.  A note written in June 14, 1944 said, “San José Church, We worked, José y Simón Botello, David Ruiz, Luís and Estanislado Calderón, Alfredo Moreno, José Rocha, our spiritual guide Rev. Alfredo Mendez.” It is unknown to what work the note refers. Jose Rocha came to Austin from Buda after the first church was completed. The parish purchased a house next door to the stone church and the men of the parish converted it into the parish hall. Perhaps this was the work the note referred to.
