@@ -212,41 +212,77 @@ The Sunday Bulletin of April 7, 1985, had a drawing of the bell tower. The drawi
 The notes below were transcribed from various sources. Most are from the Sunday Bulletin. The images mentioned may or may not still be in the possession of San José Parish.
 
 1940	When the 1st church opened in June 1940, “there was a huge Jamaica. Everyone came from all around to attend the opening of the new church. I remember them having a big statute of Saint Joseph” (221).
+
 1958	In 1958 Fr. Houser showed a statue, “Pilgrim Virgin” to a reporter. He said that Jose Ferreira Thedim, a Portugese sculptor, made the image (120).
+
 1958	In 1958 Fr. Houser showed an image of Our Lady of San Juan to a reporter. He said that it was important in converting Mexican Indians to Catholicism (120).
+
 1960, Dec. 11		At 5:00PM, the Solemn Blessing of the Statue of the Virgin Most Pure took place. It was followed by a supper from 5:30 to 7:30PM served by the Guadalupanas (223:12/04/60). When Fr. Houser was at San José, someone donated a statue of the Virgin of Guadalupe that was placed at the entrance to the 2nd church. Pete Castillo donated a candle rack for this image. The statue is now at the entrance to the women’s restroom in the 3rd church (Pete Castillo).
+
 1960, Dec. 11		The Guadalupanas served supper after the Solemn Blessing of the Statue of the Virgin Most Pure (223:12/04/60).
+
 1961, Feb. 26		The church has purchased a new statue of San José. It has not arrived yet (223:02/26/61). Pedro Rivera made the stand for the new statue (223:03/19/61).
+
 1961, Feb. 26		“The Socios of Sagrado Corazón are in charge of the insignia for the blessing of our new statue of San José. The statue has not arrived yet” (223:02/26/61).
+
 1961, March 19	“Tamales by the Guadalupanas for our new statue of San Jose”. It appears that the Guadalupanas sold tamales to raise funds for a new statue (223:03/19/61).
+
 1961, April 2		The Insignia of Padrinos for the blessing of the new statue sold for 50 cents (223:04/02/61). Luís Calderón was in charge of the Insignia (223:04/09/61).
+
 1961, April 16		The Guadalupanas had a Tamale sale to buy Insignias and to help pay for the Statue, resulting in $42.69. They plan another sale on Saturday, April 29 (223:04/16/61).
+
 1961, May 7		The blessing of the new statue of San José will take place at 10:00AM Mass with a procession into the church for all padrinos (223:04/30/61).
+
 1966, April		The Guadalupanas donated a new statue from Mexico to the school. The statue cost $125 (223:04/24/66). The monthly meeting was on May 1. That evening at 7:00PM the Virgin Mary was crowned as part of the living Rosary (223:05/01/66).
+
 1968, March 17	The image of the Virgin of San Juan was moved and a little shrine was built for her (223:03/17/68).
+
 1969, July 21		Rev. John Haley reported to Parish Council that the Guadalupanas had set aside $2,000 to remodel the sacristy and rework a picture of Our Lady of Guadalupe. They wanted to realign the picture so its corner matches that of La Virgen de San Juan (213).
+
 1968, September 6	The 12:30 Choir sponsored a parish dance and raised $1,857.60 to pay for the outdoor statue of St. Joseph for the new church (223: 21/09/1968).                            
+
 1976, January		The statue of Our Lady of Fatima was moved from one parish to another for periods of three days at each parish (223:11/01/76). The pastor admonished someone who was posting a chain prayer to St., Martha in the church. He said the copies were collected and destroyed. He said this was a form of superstition (223:11/01/76).
+
 1976, March		Rev. Lawrence Bauer condemned the practice of burning candles under the images of our Blessed Mother. He said this practice damaged the church. He urged people to substitute this practice with a mass offered for a personal intention. He did not specify the amount of donation but said he paid $1 for a Mass 62 years before (223:14/03/76).
+
 1976, July 4		The pastor said San José would ring its bell as part of the Bicentennial celebration (223:20/06/76). He was referring to the iron wheel-operated bell that sat on the ground in front of the church.
+
 1976, July		The parish had accumulated a six-months supply of large candles that were sold for $1. The small candles sold for 10 cents each (223:11/07/76).
+
 1984, January		Two friends of the parish donated a statue of the Risen Christ that was placed on the rear wall of the second church (223:01/01/84). Previously, a statue of Christ Crucified occupied that spot (223:01/01/84). St. Joseph Statue will be out of the church to be refinished and repainted (223:08/01/84).
+
 1984, January		The Statue of St. Joseph was removed and repainted by an artist (223:15/01/84). Grace Cotar put new gold leaf on the statue (223:26/02/84).
+
 1984, April		A large set of Stations of the Cross was donated by St. John’s Church in San Marcos. Mrs. Grace Cotar, the lady who did such a beautiful job refinishing St. Joseph Statue, is touching up the Stations where the plaster and paint is chipped. The old Stations of the Cross were given to parishioners as keepsakes (223:29/04/84).
-1985, April		The pastor thanked Felix E. Huizar for repairing the hand of the Sacred Heart Statue. Rev. Herman Reith, C.S.C. repaired the old crucifix that was chipped, cracked, etc. (223: 07/04/1985). Fr. Reith C.S.C. was helping at San José for a few weeks. He returned to Notre Dame on April 10 (223: 14/04/1985).
-1985		A photo in the Sunday Bulletin shows the Risen Christ above the altar with Rev. Elmer Gross holding up the Communion host. A second photo shows the image of Joseph and Boy Jesus in a wall niche. This image also shows another smaller image of Christ. The larger image and the Risen Christ image were placed in the Third Church prior to 1993 (223: 03/02/1985).
-1985		A photo in the Sunday Bulletin shows the Second Church without the bell tower. The large iron bell is shown sitting on the ground in front of the church. Near it is an image of Saint Joseph surrounded by a concrete shelter. This small image is often seen outside of homes (223: 03/02/1985).
+
+1985, April		The pastor thanked Felix E. Huizar for repairing the hand of the Sacred Heart Statue. Rev. Herman Reith, C.S.C. repaired the old crucifix that was chipped, cracked, etc. (223:07/04/1985). Fr. Reith C.S.C. was helping at San José for a few weeks. He returned to Notre Dame on April 10 (223:14/04/1985).
+
+1985		A photo in the Sunday Bulletin shows the Risen Christ above the altar with Rev. Elmer Gross holding up the Communion host. A second photo shows the image of Joseph and Boy Jesus in a wall niche. This image also shows another smaller image of Christ. The larger image and the Risen Christ image were placed in the Third Church prior to 1993 (223:03/02/1985).
+
+1985		A photo in the Sunday Bulletin shows the Second Church without the bell tower. The large iron bell is shown sitting on the ground in front of the church. Near it is an image of Saint Joseph surrounded by a concrete shelter. This small image is often seen outside of homes (223:03/02/1985).
+
 1986, January		Fr. Herman Reith refinished the statue of Our Blessed Mother. A dance at the Community Center raised money for “Outdoor Statue of St. Joseph and Grotto” (223: 12/01/1986).
+
 1987, May		There was a Shrine of Our Lady of San Juan at the entrance to the second church. The pastor asked that no flowers be left there because of the danger of the votive candles setting them on fire (223:24/05/1987).  This shrine was located on the wall in the foyer near the ladies’ rest room (223:27/01/1991).                                       
+
 1990, December	“Several years ago, the statue of Our Lady of Fatima (white with gold trim, about 3 feet high) was borrowed. If anyone knows of its whereabouts, please return it” (223:09/12/1990).
+
 1991, January		A new Holy Water Font with unlimited Holy Water was located on the wall in the church foyer near the Shrine of Our Lady of San Juan. Eddie Botello did the plumbing work (223:27/01/1991).
+
 1991, March		Mary Jennings donated a statue of Our Blessed Mother that was over 100 years old for the Parish Hall (223:17/03/1991).
+
 1991, April		People were urged to not leave photos of loved ones in front of pictures or statues. “We have placed a box in the foyer of the church and another at the entrance to Chapel marked “Prayer Requests” with request forms. Your petitions will be remembered in all our Masses” (223:28/04/1991).
+
 1992, October		Alberto Rangel donated a Statue of St. Francis of Assisi that was placed by the water fountain between the church and the rectory (223:25/10/1992).
+
 1992, November	Charlotte Born repainted the statue of Our Blessed Mother in the parish hall (223:15/11/1992).
+
 1993, January		The KOC Council 10148 donated the American Flag and the Papal Flag to the parish (223:17/12/1993).
+
 1993, February 	A 4’ x 6’ exact photographic replica of the image of Our Lady of Guadalupe was shown at San Jose on March 6 1PM to 6AM on Sunday. The image was a traveling exhibition (223:28/02/1993).
+
 1993, August		Someone threw a rock at the statue of the scourged Christ, resulting in minor damage (223:15/08/1993).
+
 1993, August		Greg and Stella Trejo and Dr. Jim and Anne Lassiter donated a fountain located in the front of the church (223:29/08/1993).
 
 ### Sacred Heart Portrait
