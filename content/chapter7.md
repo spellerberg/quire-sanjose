@@ -77,32 +77,59 @@ On January 16, 1968, the Parish Council met on Tuesday at 7:30PM in the school m
 The April 1968 meeting was devoted to formulating a recommendation to the Bishop about whether or not to keep the 7th and 8th grades of the parochial school open for next school year. The Council also made final preparations for the May 5 Bazaar at the Municipal Auditorium (223:04/21/68).
 
 During the period August 1967 until June 1968, the roster of Parish Council members included:
+
 Briones, Evangeline
+
 Garcia, Joe
+
 Gutierrez, Gabriel
+
 Longoria, Tom
+
 Pinget, Jim
+
 Rocha, Joe
+
 Uriegas, Joe
+
 Guerrero, Henry
+
 Calderon, Luis
+
 Casarez, Pete
+
 Castillo, Manuel
+
 Guerra, Sam
+
 Perales, Roy
+
 Saenz, Henry
+
 Sanchez, Joe
+
 Treviño, Frances
+
 Botello, Pete
+
 Castruita, Frank
+
 Galvan, Joe
+
 Guerra, Celia
+
 Saldana, Moses
+
 Torres, Tim
+
 Sanchez, Fernando
+
 Vásquez, Lupe
+
 Rev. Mike Mikan, ex oficio
+
 Rev. John Hailey, ex oficio
+
 Sister Angelina, ex oficio
 
 ### 2nd Parish Council, 1st elected Council
@@ -114,93 +141,173 @@ On Sunday, September 8, 1968, slips of paper were passed out in the church and e
 The new Council met at the school on September 16 to elect officers. The new officers were Henry Guerrero, Chairman; Tom Longoria Vice-Chairman and Evangeline Briones, Secretary. A committee was created to reexamine how council members were to be elected in the future (213). In October, the committee reported back to Council. Ben Vega presented an electoral map to the council. Under this plan, two members would be elected from each electoral district each year. The parish council voted 8 to 5 to adopt the map (213).
 
 During the period August 1968 until July 1969, the roster of Parish Council members included:
+
 Calderon, Luis
+
 Casarez, Pete
+
 Castillo, Manuel
+
 Briones, Evangeline
+
 Perales, Roy
+
 Saenz, Henry
+
 Sanchez, Joe
+
 Garcia, Joe
+
 Gutierrez, Gabriel
+
 Castruita, Frank
+
 Galvan, Joe
+
 Guerra, Celia
+
 Cantu, Rosie
+
 Tamayo, Pete
+
 Sanchez, Fernando
+
 Vásquez, Lupe
+
 Longoria, Tom (213).
 
 On September 1968, the Sunday Bulletin listed the following members of the new council (including those elected to fill vacancies):
+
 Arriaga, Ray
+
 Briones, Evangeline
+
 Calderon, Luis
+
 Casarez, Pete
+
 Castillo, Manuel
+
 Castruita, Frank
+
 Cortéz, Ray
+
 Galvan, Joe
+
 Garcia, Joe
+
 Guerra, Celia
+
 Guerrero, Henry
+
 Gutierrez, Gabriel
+
 Longoria, Tom
+
 Perales, Roy
+
 Rocha, Joe
+
 Saenz, Enrique
+
 Saldana, Moses
+
 Sanchez, Fernando
+
 Sanchez, Joe
+
 Soliz, Florencio
+
 Torres, Tim
+
 Uriegas, Joe
+
 Vasquez, Lupe
+
 Vega, Ben
 
 Those elected to fill vacancies were
+
 Arriaga, Ray
+
 Cortez, Ray
+
 Garcia, Joe
+
 Guerrero, Henry
+
 Longoria, Tom
+
 Rocha, Joe
+
 Soliz, Florencio
+
 Uriegas, Joe
+
 Vásquez, Lupe
+
 Vega, Ben (223:09/15/68).
 
 The roster of Parish Council members in September 1969, with the length of their term, was
+
 Canut, Rosie, term 1 year
+
 Casarez, Gene, term 1 year
+
 Casarez, Pete, term 3 years
+
 Castillo, Manual, term 3 years
+
 Castruita, Frank, term 1 year
+
 Guerra, Celia, term 1 year
+
 Guerra, Sam, term 1 year
+
 Guerrero, Henry, 2 years
+
 Ibarra, Roger, term 3 years
+
 Longoria, Tom, 2 years
+
 Mercado, Albert, 2 years
+
 Perales, Roy, term 3 years
+
 Rios, Perfirio, term 3 years
+
 Rodriguez, Raymond, term 3 years
+
 Rocha, Joe, term 1 year
+
 Saenz, Henry, term 3 years
+
 Sanchez, Fernando, term 1 year
+
 Sanchez, Joe, term 3 years
+
 Segura, Julian, 2 years
+
 Tamayo, Albert, 2 years
+
 Tamayo, Pete, term 1 year
+
 Uriegas, Joe, 2 years
+
 Vasquez, Lupe, 2 years (replaced by Frank Mendez, Oct. 1969)
+
 Vega, Ben, 2 years (213).
 
 In October 1968, the Sunday Bulletin listed the following Parish Council officers and committees. The officers were Henry Guerrero, Chairman; Tom Longoria Vice-Chairman and Evangeline Briones, Secretary-Treasurer. The committees were:
+
 Liturgical and Spiritual Committee: Tom Longoria, Ray Arriaga, Ray Cortez, Joe Sanchez, Ben Vega, Roy Perales and Pete Casarez
+
 Youth Committee: Joe Sanchez, Joe Uriegas, Enrique Saenz, Evangeline Briones and Tim Torres
+
 Education Committee: Ben Vega, Frank Castruita, Gabriel Gutierrez, Florencio Soliz, Lupe Vasquez, Enrique Saenz, Moses Saldana and Sister Mary Angelina Álvarez
+
 Parish Life and Social: Ray Cortéz, Frank Castruita, Ray Arriaga, Celia Guerra, Joe Rocha and Luis Calderon
+
 Finance and Planning Committee: Manuel Castillo, Lupe Vásquez, Fernando Sanchez, Joe Garcia, Joe Uriegas, Gabriel Gutierrez and Joe Rocha (223: 10/06/68).
 
 The Council met monthly (223:10/20/68) with committees meeting a day or two before the full Council met (223:07/13/69). In March 1969, the parish council met with the bazaar volunteers in the school to plan the May 4 fiesta (223:03/16/69).
@@ -223,11 +330,17 @@ Parish Council elections held at each mass on August 16, 1970 (213). The new Cou
 The Council requested and was given a report about activities at the Community Center. During the month of August, there were a total of twenty-one functions held at the San José Community Center. Five events paid rent and sixteen events were sponsored by the parish or parish sodalities and did not pay rent. The events that paid no rent were thirteen Bingos games, two dances (sponsored by the Socios and CYO) and one special event (the Guadalupanas made tamales) (213).
 
 Roster of Parish Council on September 15, 1970 was
+
 Porfirio Rios, Chairman; Fernando Sanchez, Vice-Chairman; Rosie Cantu, Secretary: Manuel Navarro, Parliamentarian.
+
 Youth Committee: Chairman Pete Castillo, Joe Uriegas, Julian Segura, Joe Sanchez
+
 Education Committee: Chairman Vincent Ortiz, Albert Tamayo, Joe Garcia, Paul Samaniego, Raymond Rodriguez
+
 Liturgical Committee: Chairman Tom Longoria, Peter Casarez, Lorenzo Hernandez, Gene Casarez, Jerome Estrada
+
 Finance & Planning: Chairman Manuel Navarro, Fernando Sanchez, Pete Tamayo, John Anguiano, Albert Mercado
+
 Parish Life & Social: Chairman Henry Guerrero, Porfirio Rios, Rosie Cantu, Frank Castruita, Roger Ibarra (223:09/20/70).
 
 The names of the members of the Parish Council were posted on the bulletin board in the back of the church. The council met monthly on a Tuesday at 8:00PM (223:10/18/70) (223:12/13/70) (223:03/14/71) and Committees were expected to meet on the week prior to the general meeting (223:11/08/70) (223:03/07/71). In November, Rev. Bob Gilmore, C.S.C., who was an Associate Pastor of San Jose and a member of the Citywide Committee for Human Rights, presented a plan to install a job counseling and placement program and a family service program at San José Church (223:12/06/70).
@@ -255,15 +368,23 @@ In January 1989, a group of parishioners were researching whether or not to form
 In April 1989, Rev. Underwood explained the role of the parish council. It would be based on the New Code of Canon Law and the recommendations of Bishop Keating. He was preparing the guidelines before calling a parish meeting to review the guidelines, set a process for election and discuss subcommittees (223:16/04/89). “There is going to be a Pastoral Council information meeting at Our Lady of Guadalupe Church, 1209 E. 9th Street. See you there”, he said (223:14/05/89). The next Sunday the pastor announced that a Pastoral Council had been formed and was meeting with Msgr. Furge next Monday (223:21/05/89).
 
 At about the same time, Fr. Underwood announced the formation of a Finance Committee. The members of the Finance Committee were
+
 Raymond Castro, IBM Technician
+
 Max D. Cavazos, retired
+
 Imelda Escobar, state attorney and cochair of the Finance Committee
+
 Mike Moreno, Internal Auditor with the State Treasurer
+
 Roy Reyna, Bus Manager at El Rancho Restaurant and cochair of the Committee
+
 Rosie Tello, Date Entry Supervisor at Bridge Bank
+
 Christie Zarria, ex-officio member (223:28/05/89)
 
 The pastor explained the difference between a Parish Council and a Pastoral Council. The new Canon Law prohibits parish councils from involving themselves in administration, personnel, buildings, maintenance and finance. The new Pastoral Council was involved only in pastoral matters, usually ministries. A separate Finance Committee was formed to address other issues.
+
 The pastor said the old Parish Councils created many problems and conflicts with the pastor and the staff and created divisions within the parish. In response, Canon Law was changed and Bishop John Keating wrote new guidelines. He invited all those interested in the Pastoral Council to attend a meeting on June 12 in the Old Church (223:11/06/1989).
 
 As part of the process of installing a Pastoral Council, listening and sharing sessions were held for parish organizations in June 1989. The organizations were divided into ministries involved with the Liturgy (LEM, lectors, ushers, choirs, rosary prayer group); Social Justice (San Jose Inter-Faith, Socios, Guadalupanas, breakfast workers, Jamaica workers); Religious Formation (CCD teachers, RCIA sponsors) and Evangelization (Visitors to Shut-ins, Stephen Ministry, Prayer Group, Renewal Teams, Rosary Ministry). “Everyone’s prayers and support are needed during this time.” All meeting were in the old church on Monday or Tuesday, June 26 and 27 and July 10 and 11 (223:18/06/1989).
@@ -285,112 +406,218 @@ In May 1989, the pastor distributed a letter as an insert in the Sunday Bulletin
 ### Parish Administrators
 
 Alfred J. Mendez, Alfred, C.S.C.
+
 August 15, 1939-Feb. 11, 1942 San Jose Mission
+
 Feb. 11, 1942- April 6, 1947 San Jose Mission
+
 April 6, 1947- Sept. 3, 1948 Pastor, San Jose Parish
+
 Joseph Houser, C.S.C.		Sept. 3, 1948- July 2, 1967
+
 John Haley, C.S.C.			July 1967- March 1975
+
 Michael Mikan, C.S.C.		March 1975-November 1975
+
 Lawrence T. Bauer, C.S.C. 		November 1975-July 1976
+
 John S. Korcsmar, C.S.C. 		July 1976- November 7, 1982
+
 Underwood, Fred CSC 		November 7, 1982- April 1993
+
 Kirby D. Garner, Diocesan		April 1993-2002
+
 Msgr. Tom Frank. Diocesan		2002-2013
+
 Alberto J. Borruel, Diocesan		2013- July 2018
+
 Jairo Sandoval-Pliego, Diocesan	July 2018-
 
 ### Associate Pastors and visiting priests and seminarians
 
 Joseph Houser, CSC			  1940
+
 James W. Donahue, C.S.C.	1940	Associate Pastor
+
 James A. Donnelly, CSC		1940
+
 Thomas J. Culhane, CSC		1941-1945
-Peter Mueller, CSC        1943, Dec. 31, 1946- April 3, 1947	Associate Pastor St. Ignatius to work at San Jose, April 6, 1947- 		Associate Pastor
+
+Peter Mueller, CSC        1943, Dec. 31, 1946- April 3, 1947	Associate Pastor St.
+
+Ignatius to work at San Jose, April 6, 1947- 		Associate Pastor
+
 Joel C. Atwood, CSC		Sept. 6, 1947-1951 Assistant Pastor
+
 James A. Donnelly, CSC,   Jan. 2, 1947- April 6, 1947 Associate Pastor St. Ignatius to work at San Jose, April 6, 1947- 	1948	Associate Pastor
+
 Elmer Vincent Rupp, C.S.C. 		1948-1952
+
 John Driscoll, C.S.C. 		1948
+
 Edwin Bauer, C.S.C. 			1948
+
 Frank Weber, C.S.C. 			1948	Helped build the rectory
+
 Brother Anthony J. Weber, C.S.C.	1948 	Helped build the rectory
+
 Thomas Culhane, CSC		1948 	Helped build the rectory
+
 Driscoll, John, CSC		1948
+
 Charles A. Delaney, CSC		1948
+
 Bauer, Edwin, CSC			    1948  
+
 Vincent Delavy
+
 Brother Joseph Caine
+
 John Driscoll, C.S.C. 			1951-1953
+
 Charles A. Delaney, C.S.C. 	1952-1953
+
 Frank Weber, C.S.C. 			  1958-1959
+
 Brother Anthony J. Weber, C.S.C.	1958-1959
+
 Thomas J. Culhane, CSC		  1959-1960
+
 Vincent Delavey, CSC		    1960-1961
+
 Harold J. Hughes, C.S.C. 		1961-1962
+
 Samuel J. Ciatto, C.S.C. 		September 1962- July 1965	Associate Pastor
+
 Edward F. Abstetar, C.S.C. 	1965-February 1966 		Associate Pastor
+
 Francis S. Bennett C.S.C. 	February 1966-April 1966	Associate Pastor
+
 Lawrence Saha, C.S.C.	      June-July 1966
+
 John Haley, CSC		April 1967-July 1967	Associate Pastor
+
 Mike Mikan CSC		July 1967- March 1975	Ass. Pastor
+
 Brother Gregory 	July 1967
+
 Robert Gilmore		May 1969-September 1969
+
 Ernest Sweeney, S.J.		December 1969
+
 Ray Canizales, CSC, Holy Cross seminarian, December 1969
+
 Robert Gilmore, CSC		December 1970-July 1971	in residence
+
 Robert Villegas, CSC		1972-1973
+
 Frank Gillespie, SJ		  August 1974
+
 Bob Gilmore CSC		Departed March 1975	Associate Pastor
+
 Miguel Simone, M.M.		August 1975-June 1976	Associate Pastor
+
 Bill Loughran, seminarian	July 1975
+
 Jeffrey Iacobazzi, seminarian 	July-August 1976
+
 Larry Bauer			July 1976-	Associate Pastor
+
 Peter Mueller, CSC		June 1981
+
 Joseph F. Houser, CSC 	August 1982-August 26, 1983
+
 Francis R. Weber, CSC	August 1982- June 1983
+
 Jack Keefe 			July 1982
+
 Eddie Reyes, Holy Cross candidate Dec. 1982-August 1983
+
 Elmer Gross, CSC		Aug. 1983-Feb. 1985	Associate Pastor
+
 Charlie Van Winkly, CSC	October 1984
+
 Herman Reith, CSC		  February-April 1985
+
 Joseph Houser, CSC		April 1985, July 1985
+
 Peter Logsdon, CSC		July 1985
+
 George Menke, SJ		  July 1985
+
 Leonard Paul, CSC		Aug. 1985-April 1987	Ass. Pastor
+
 Alfredo Vasquez, Deacon	May-June 1986
+
+
 Ray Wilhelm, O.M.I. 		July-August 1986
+
 Isidore Garcia, O.M.I.		July-August 1986
+
 Charlie Van Winkly, CSC	July-August 1986
+
 Charlies Van Winkly, CSC	August 1986-July 3, 1988	Associate Pastor
+
 John Phalen, CSC		June 1987
+
 Jim Phalan, CSC seminarian	June 1987
+
 Jim Palmer, CSC seminarian	June 1987
+
 Leonard Paul		January 1988-August 1988	Associate Pastor (part-time)
+
 Herman Reith, CSC		February 1988
+
 Frank Grogan, CSC		September 4, 1988-September 9, 1990 Associate Pastor
+
 Leonard Paul			August 1988-June 1989 Associate Pastor
+
 Christopher Scadron		December 1989-February 1990
+
 Joe Berra, SJ			June 1990
+
 Victor Goertz			June 1990
+
 Joseph Devliegher, C.S.C.	July 1, 1990- October 1992 Associate Pastor
+
 Herman Reith, CSC		February-March 1991
+
 Damien Hinojosa		Spring 1993-May 1993
+
 Pascal Kabura			Spring 1993-May 1993
+
 John Payne, CSC		November 1992-April 1993	Associate Pastor (part-time)
+
 Le-Minh Joseph Pham	July 1993-1996	Associate Pastor
+
 Roger Hall			   1996-1997
+
 Dick Hudson			   1997
+
 Jairo Lopez			   1995-1996, 1997-1999
+
 Joe McNeil			   1996-1997
+
 Miguel Angel Paredes		1998-1999, 2002-2003
+
 Carlos G. Puerto	  1999-2000
+
 George Joseph			  1999-2002
+
 Ernesto Elizondo		2000-2002
+
 Miguel Angel Paredes		2002-2003
+
 Juan Carlos Lopez		November 2003-2006	Associate Pastor
+
 Kevin Rai	              2002-2013  	Associate Pastor   
+
 Melesio Peter			2005-		In residence
+
 Miguel Duarte			2006-2009
+
 John G. Boiko			2010-2016	Associate Pastor
+
 Barry William Cuba		2015-
 
 ### Death Register
@@ -398,84 +625,160 @@ Barry William Cuba		2015-
 When a baptized Catholic dies, the officiant is supposed to notify the parish where the person was baptized so the records can be brought up to date. Parish Death Registers can be used to identify priests who performed funerals of San Jose parishioners. The following list covers the period from 1939 to 2017 and includes priests from other parishes who provided information to San Jose. The dates after the names of the officiant are the first and last date recorded in the Registers if there are multiple dates in the Register.
 
 A. Mendez		Aug. 23, 1939
+
 A. Send		May 11, 1941
+
 Thos Culhane		Feb. 15, 1942; June 23, 1945; Nov. 12, 1959; Feb. 19 1975
+
 C. Fuuks		June, 1942
+
 Pete F. Mueller	Oct. 1, 1945; April 7, 1948; April 28, 1991
+
 J. A. Donnelly		Jan. 29, 1947; March 1, 1947
+
 Joel C. Atwood	March 12, 1948; Aug. 14, 1949
+
 Elmer V. Rupp	July 28, 1948; Feb. 7, 1960
+
 Joseph Houser	March 13, 1949; April 24, 1967; April 12, 1983, Nov. 8 1984; March 22, 1986
+
 George Green, OMI	July 14, 1949
+
 Diez OMI		June 7, 1951
+
 Chas Delaney		April 21, 1952; April 17, 1954
+
 Lawrence Bauer	May 30, 1955
+
 A. Weber		Aug. 4, 1958; Aug. 2, 1982
+
 Harold Hughes	March 22, 1961; March 19, 1962
+
 H. Hooks, OMI	August 21, 1962
+
 S. J. Ciatto		Sept. 15, 1962; July 5, 1965
+
 Francis Bennett	July 23, 1966
+
 John Haley		May 20, 1967; Dec. 31, 1974
+
 Michael Mikan	June 24, 1967; Oct. 11, 1975
+
 Bautista, Robert	June 26, 1968
+
 Larry T. Bauer	Jan. 21, 1976; June 30, 1976
+
 Michael A. Simone	Jan. 29, 1976
+
 John S. Korsmar	June 8, 1976; Sept. 22 1982
+
 L. Peter Logsdon	May 23, 1979; Dec. 24, 1981
+
 Richard Narvey	Dec. 1, 1980
+
 Jerome Burnett OMI	Jan. 17, 1980
+
 John T. Payne CSC	Aug. 22, 1981; June 25, 1993
+
 Frank Weber		Sept. 22, 1982; Oct. 18, 1982
+
 George Joseph		Dec. 23, 1982
+
 Fred Underwood		Jan. 14, 1983; Nov. 24, 1992
+
 Charles Banks		June 2, 1983
+
 Elmer Gross CSC		Sept. 24, 1983; Jan. 9 1985
+
 Francis McFarland	May 27, 1985, June 8, 1988
+
 Charles Van Winkle CSC	July 10, 1985; June 29, 1988
+
 Leonard Paul CSC		Aug. 12, 1985; June 24 1989
+
 Richard Teall			Jan. 9, 1987
+
 Ray Wilhelm OMI		April 13, 1987; May 2, 1988
+
 Francis Grogan CSC		Nov. 1, 1988; Aug. 6 1990
+
 Joe Devliegher CSC		July 11, 1990; Sept. 11 1992
+
 Deacon Enrique Saenz	Sept. 13, 1989; March 25, 1995
+
 Elmer Holtman CSC		Nov. 25, 1990
+
 Damien Hinojosa CSC	July 15, 1991; Feb. 20 1999
+
 Kirby D. Garner		May 7, 1993; Jan. 12 2002
+
 Manuel Espinoza		July 22, 1993
+
 Le Minh Joseph Pham	Aug. 14, 1993; April 22 1996
+
 Deacon George Joseph Jr.	Dec. 24, 1993; Oct. 10, 2002
+
 Deacon John Rivera		December 24, 1993; Nov. 2, 1996
+
 Richard Tijerina		May 10, 1994; Dec. 7, 2017
+
 B. Michael Wood		April 18, 1996
+
 Joel D. McNeil			July 13, 1996; Sept. 17 1996
+
 Rodger Hall			December 27, 1996; July 18, 1998
+
 Richard Hudson		April 1, 1997; May 13, 1997
+
 Jairo López			Nov. 25, 1997; Jan. 8 1999
+
 Deacon Alfredo Vásquez	Dec. 26, 1997
+
 Deacon Romeo Sanchez	Dec. 16, 1998; April 23, 2010
+
 Miguel Angel Paredes	April 27, 1998; April 25, 2003
+
 Frank Macias			May 16, 1998
+
 Deacon Joe Gutierrez		June 6, 1998; Feb. 26, 2010
+
 Carlos Puerto			March 9, 1999; Feb. 2, 2000
+
 Ernesto Elizondo		July 24, 2000, Jan. 17. 2002
+
 Deacon Alfredo Benavides	July 27, 2000; Dec. 20, 2006
+
 Luis Moreno			March 14, 2002; May 20 2002
+
 Tom Frank			July 10, 2002; Jan. 5, 2007; June 13, 2014
+
 Kevin Rai			July 9, 2002; July 29, 2009
+
 Juan Carlos Lopez		July 23, 2003; June 4, 2006
+
 Melesio Peter			May 3, 2006; Sept. 23, 2008
+
 Miguel Duarte		Aug. 20, 2006; Sept. 30, 2009
+
 Deacon Jesse Martinez	Oct. 14, 2006; Sept. 9, 2014
+
 John Boiko			Jan. 28, 2010; July 7, 2016
+
 Barry Cuba			Dec. 30, 2014; July 8, 2016
+
 Payden Blevins		Aug. 5, 2016; Feb. 3, 2017
+
 Sean Dewitt			Aug. 3, 2016
+
 Alberto J. Borruel		June 25, 2014; May 26, 2017
+
 Greg Gerhart			July 25, 2017
-Deacon AgapitoLopez	March 18, 2017
+
+Deacon Agapito Lopez	March 18, 2017
+
 Augustine Ariwaodo		Feb. 17, 2017; June 5, 2017
 
-## Sunday Bulletin Text
+## Sunday Bulletin
 
 In 1960, San José Parish had about 400 registered families and was growing rapidly. The Church’s sanctuary, which was built in 1955, had a seating capacity of 530 people. The church building still had adequate seating capacity for Sunday Mass. The parish had a school that was also growing rapidly. The school, which opened in 1956, added a grade level each year and, by 1960, the school employed five teachers and enrolled over 100 children.
 
@@ -483,9 +786,13 @@ The three largest parish organizations, la Sociedad del Sagrado Corazón de Jes�
 
 The parish community had become too large and its activities too varied to rely on word of mouth for communication between the pastor and the various organizations of the church. The pastor looked for a way to finance a newsletter or bulletin. However, the parish struggled financially and paper for a newsletter was expensive. The Parish Administrator asked that the parishioners contribute about $525 per week to pay for the expenses of the church. Only a few of the parishioners could afford to give more than one dollar a week and rarely did the Sunday Collection exceed $400 per week. However, the parishioners and the people of the surrounding neighborhood had a fondness for gaming and the profits from the 7:30PM Sunday Bingo game usually made up the difference between what the pastor needed to operate the parish and what the parishioners could afford to give.
 
+### The first bulletin date from 1960
+
 The parish began publishing a regular weekly bulletin in December 1960. The parish had no money to pay for a bulletin but, fortunately, a sponsor came forward who agreed to pay the cost of the paper. While on a visit to Austin, Charles and Lois Villaseñor, who lived in Houston, were surprised to find that there was no funeral home catering to Austin’s large and growing Mexican community. Mr. and Mrs. Villaseñor moved to Austin in 1959 and opened a modest funeral home on East First Street in East Austin. In December 1960, about a year after the Villaseñores opened the funeral home, Charles Villaseñor approached the Administrator of San José Parish, Rev. Joseph Houser, and offered to furnish the church with a supply of blank sheets that could be used for the Sunday Bulletin. Mr. Villaseñor stipulated only that the back page contain an advertisement for his business.
 
 The pastor was clearly delighted to finally have a regular weekly bulletin. He saw the Hand of God in this. He wrote, “With this first Bulletin of San Jose Church, we greet you with the words that end today’s Epistle. “Now the God of hope fill you with all joy and peace in believing; that you may abound in hope, and in the power of the Holy Ghost” (223:04/12/1960). The first printed Sunday Bulletin in the archives of San José church dates from December 4, 1960.
+
+### The bulletin was mimeographed
 
 The Bulletin was mimeographed on one side of an 8 ½ x 14 sheet of paper. The sheet was folded down the middle to produce four pages. The reverse side of the sheet was printed by a commercial firm and formed pages one and four of the bulletin. Page one featured the architect’s rendering of second San José church building and the words, “Weekly Bulletin, San Jose Church, 2425 Oak Crest Street, Austin 4, Texas, Rev. Joseph Houser C.S.C., Rev. Harold Hughes, C.S.C.” followed by the schedule of services. Page four was an advertisement for the funeral home that donated the paper. Page two and three contained Spanish and English versions of announcements written by the staff of the church office. The reverse side of the paper was printed while the inside pages were mimeographed in the church office.
 
@@ -495,7 +802,162 @@ Mission Funeral Home, 1612 East First Street, provided the pre-printed paper for
 
 In January 1964, the front page of the Sunday Bulletin was redesigned to feature a different image of the second church. The image was a photograph of the entrance and the steps leading up to the church door. Mission Funeral Home continued to provide the paper (223: 01/05/64).
 
+### Angel Funeral Home was the second sponsor
+
 Every year the parish provided a religious calendar to each family registered in the parish. Angel Funeral Home, then located at 1700 East 2nd Street, provided the parish with calendars for 1962 and 1963. These calendars were mailed to each parishioner’s home (223:01/12/64). The pastor commented on how “costly” the calendars were and how appreciative he was to Angel Funeral Home and Town and Country Stores for providing them. He may also have agreed to allow Angel Funeral Home to become the bulletin’s sponsor because, the following spring, Angel Funeral Home replaced Mission Funeral Home as the sponsor of the Sunday Bulletin. Thereafter, until 1974, the two competing funeral homes took turns advertising in the Sunday Bulletin, sometimes switching from one to the other on an annual basis.
+
+Perhaps due to the increased cost to print a photograph, after a year the image used on the front page of the bulletin reverted back to the original architects’ line drawing of the church (223:03/07/65).
+
+When Father Joseph Houser left San José Church in 1967, Mission Funeral Home was again providing the paper for the Sunday Bulletin. San José Church staff and volunteers compiled and typed the announcements that appeared on pages two and three of the four-page bulletin. The pastor frequently praised the small group, “who prepare our Sunday Bulletins”. He explained that, “first it must be typed, then run off by machine. The workers are very faithful” (223:01/02/66). The work had to be done every week and in time for the Vigil Mass on Saturday afternoon.
+
+From its beginning in 1960, the San José Sunday Bulletin was bilingual. Page two was the Spanish translation of the English text on page three. Usually the English and the Spanish translation were more or less exact translations of each other. Occasionally, especially when a long list of names was printed in the bulletin, half of the list would appear on the English side and the other half on the Spanish side. The pastor was careful to lists the names of children taking their First Communion and being confirmed.
+
+The Sunday Bulletin of May14, 1967 was the last Sunday Bulletin to have parallel translations of Spanish and English. By then, it was not possible to contain all of the announcements to one page and the readers were advised to read both the English and Spanish versions because they were not identical. About one-half of the announcements were in Spanish and the other half were in English. It was clear that the vast majority of the parishioners were fluent in both English and Spanish.
+
+In May 1967, the parish priests were Rev. Joseph Houser C.S.C. and Rev. Francis S. Bennett C.S.C. (223:05/14/67). April 1967 marked the beginning of an important transition for San José Church. Rev. Alfred Mendez founded the church in 1939 but it was Fr. Houser who nurtured and matured it. Fr. Houser was probably also the intellectual author of the Mexican Missions in southern Travis County. While teaching and living at St. Edward’s University, Fr. Houser used a small chapel on the university grounds to provide religious instruction to Mexican children who could not make the five-mile journey to Guadalupe Church in East Austin (72). A photograph dated May 7, 1939, shows Houser with a group of children after their First Communion (216). The nineteen years he spent at San José was an extension of the work he began at St. Ed’s. Throughout his tenure as the Administrator of San José, Fr. Houser made sure that all announcements appeared in both languages.
+
+There are no existing Sunday Bulletins from the middle of May until the end of June 1967 in the San José Church archives. This coincided with change of parish priests from Fr. Joseph Houser and Fr. Francis Bennett to Rev. John Haley and Rev. Mike Mikan.  When the Sunday Bulletin reappeared on July 2, it was printed on paper supplied by Angel Funeral Home but the usual image of the church was replaced with a photograph of Fr. Houser. It was a Special edition of the Bulletin that announced the Farewell Program for Rev. Joseph Houser (223:07/02/67).  
+
+### Spanish was no longer used after 1967
+
+The next regular Sunday Bulletin in the archives, dated July 9, 1967, had a new format. The Spanish language was no longer used and the interior of the bulletin (pages two and three) was one long page in English. The bulletins of July 9 and July 16 did not use the paper donated by Angle Funeral Home. Both were Special Bulletins with a slogan followed by the name of the church and the date. The slogan on July 9 was, “Problems are solved by moving ahead”. The slogan on July 16 was, “I’m ready” (223:07/16/67).
+
+On July 30, 1967 the Sunday Bulletin reverted to the pre-printed paper donated by Angel Funeral Home. The new priests, Rev. John Haley, C.S.C. and Rev. Mike Mikan, C.S.C. (223:07/30/67) worked together at San José Church from 1967 until 1975 (211). During their tenure, San José was no longer a Mexican church. Although its parishioners had Hispanic surnames and most spoke Spanish, the church was officially no longer a Spanish-language church. The Saturday Vigil Mass and the first Mass on Sunday morning were in Spanish but, when Fr. Houser returned to San José as Associate Pastor in June 1982, he found a parish that retained Spanish only for “cultural reasons”.
+
+Fr. Haley experimented with and made significant changes to the Sunday Bulletin during his tenure as parish administrator. From January until December 1970, the bulletins were purchased from the firm of Liguorian Sunday Bulletin in Liguori, Mo. The cost of the Liguorian bulletins proved to be too great and, in January 1971, the church returned to the pre-printed Sunday Bulletins used in 1967-1969. Angel Funeral Home provided the pre-printed sheets. The architect’s drawing of the second church was the image used on these bulletins (223:07/03/71). In May 1972, the sponsor of the Sunday Bulletin changed from Angel Funeral Home, 1700 E. 2nd Street to Mission Funeral Home, 1615 East First Street (223:05/07/72) but, otherwise, nothing else about the bulletins changed.
+
+### The CCD Newsletter replaced the Sunday Bulletin in 1973
+
+In July 1973, Fr. Haley or Fr. Mikan launched another experiment. Between July 1973 and September 1974, the Sunday Bulletin was replaced by a new publication called the CCD Newsletter Volume One (248) and Volume Two (249). The first edition of the CCD Newsletter was dated July 22, 1973. The newsletter was clearly aimed at the youth of the church. Cartoon-like drawings based on characters in the Peanuts comic strip, but drawn by CCD staff, were common. Spanish was used but no attempt was made to provide parallel translations of English and Spanish announcements.
+
+The staff of the CCD newsletter was Vye Carlile, editor; Nina Medrano and Janie Maldonado, artists; Miguel de los Santos, translator; and Ofelia de los Santos (249: 16/09/73), Carol Jo Vasquez and Debbie Sifuentes, typists (249: 23/09/73). The staff of the CCD Teen Samaritan, another newsletter, was Maria Buentello, Lupe Conde, Margaret Sendejas, John Cannon, Janie Maldonado, Rosie Martinez and Ester Moreno (249: 07/10/73). In October, the staff was listed as Vye Carlile, editor; Miguel de los Santos, Angelina Guerrero, Lupe Vela translators; Ofelia de Los Santos, Vye Carlile typists; Janie Maldonado, Nina Medrano, artists; Janie Maldonado, Rosie Martinez, teen representatives and Gloria Cannon, contributing editor (249: 28/10/73). In January 1974, the staff was Vye Carlile, editor; Chema Saenz, translator; and Vye Carlile, typist (249: 27/01/74). In April 1974, the staff was Vye Carlile, Miguel De Los Santos (translator) and Vye Carlile (typist) (249:21/04/74). The staff of the newsletter met every Tuesday at 6:00PM to create the newsletter (249:13/01/75). The Pastor estimated that over 800 people read the newsletter weekly. It was bilingual in an informal way and usually consisted of three or four pages (249:17/03/74).
+
+The April 21, 1974 issue of the Samaritan was the last bilingual issue (249:21/04/74). The name also changed to San Jose News. The staff was Maria Soliz, Silvia Loya, Teri Vera and Robert Michalewiez (250: 27/10/74). A group of young people called the Samaritan Club met on Wednesdays at 5:30PM at the school to publish the newsletter under the direction of Mrs. Vye Carlile. In May, Robert Mikowitz and Ninfa Nunez joined the group (249: 05/05/74). In May 1974 the staff consisted of Vye Carlile, editor; Carmen Cortez, social editor; Robert Mikowitz, business and club editor; Rosie Martinez, youth editor; Dodie Rodriguez, senior citizen editor and Deb Morrison, neighborhood center reporter (249: 12/05/74).
+
+In June 1974, other changes were made. San José CCD now produced The Samaritan newsletter. The staff was associated with South Austin Neighborhood Center in some way. At that time, the South Austin Neighborhood Center was housed in the San José Community Center and the same group of young people who managed the neighborhood center published the San José newsletter. The newspaper staff managed the Summer Tutoring Program, Senior Youth Activities and a clothing and food bank and sponsored an Open House Festival Bazaar on July 7 (249:23/06/74). In August, funds from the Neighborhood Youth Corps must have run out and the group disbanded at the beginning of the school year. August 5, 1974, was the last issue of the Samaritan. Both of its editors (Miss Vela and Mrs. Vye Carlile) returned to their jobs as teachers.
+
+### The Sunday Bulletins reappeared in 1974
+
+The Sunday Bulletins reappeared as the San José News on September 15, 1974 (250) and as the Weekly Bulletin on January 5, 1975. For the next two years, the Sunday Bulletin consisted of an 8 ½ x 14 sheet mimeographed on both sides. The bulletin carried no advertising and no image other than a simple letter head with church name, Mass schedule and the names of the parish priests. Beginning in July 1976, the bulletin was mimeographed on a preprinted sheet purchased from Liguori Publications. There was no advertising.
+
+Beginning in January 1979, the supply of preprinted sheets was purchased from J. S. Paluch Company in Chicago. J. S. Paluch is a Catholic company that specializes in church bulletins. In April 1979, J. S. Paluch Company opened an office in Humble, Texas and began to sell advertising to local businesses located in South Austin. The San José bulletin was a single 11x14 inch sheet printed on both sides. Page four of the bulletin was divided into 36 small rectangles, each of which contained an advertisement for a local business. The publisher managed and sold the advertisements. This change was made when Rev. John S. Korcsmar, C.S.C. was the pastor.
+
+This became the format used for the San José Sunday bulletin for the next forty years. Beginning in 1981, the Bulletin was printed by Trinity Publications in Austin but J. S. Paluch continued to manage the advertising. Occasionally, the image on the front page, the size of the paper or the publisher changed but the format has remained the same.
+
+### Spanish reappeared in 1983
+
+Beginning in 1983, Spanish language announcements began appearing in the Sunday Bulletin again. Often, the Spanish announcements were printed on a separate sheet and inserted into the bulletin. When this was done, the words, “Traducido al Espanol en hoja anexa al bulletin”, appeared somewhere in the English version.
+
+According to Rev. John Korcsmar, who served as Pastor from 1976 until 1982, it was originally thought that San José would not long remain a Spanish-speaking parish. In 1976, he said that, “The people in this community are very fluent in both Spanish and English. They nearly all work very well in either language.” (108) He could not have foreseen the large number of Mexican immigrants that arrived at San José in the 1980s. In response to those new parishioners, who often do not speak English, the San José Sunday Bulletin continues to be a bilingual publication with parallel translations of almost every announcement.    
+
+In December 1985, an image of the Risen Lord was used for the first time on the front page of the Sunday Bulletin. The image was shown hovering over a drawing of the second San Jose Church. The drawing was modeled after the crucifix that hangs above the altar of the main Church. At that time, the pastor was Rev. Fred Underwood. He also placed the insignia of his order, the Holy Cross Fathers, to the left of the image of the Risen Lord. After a few months, the Holy Cross insignia disappeared but the image of the Risen Lord is used on the cover of the San Jose Sunday Bulletin until 2017.
+
+### Summary of publishing methods
+
+The Sunday Bulletin of San José Parish has remained largely unchanged over the past sixty years. Below is a brief summary of methods used to produce the bulletin and the changes to its appearance with each new parish administrator.
+
+1960, Dec. 4 – 1961, Dec. 31		8 ½ x 14, preprinted by Mission Funeral Home, architects rendering of second church on a level surface with the words, ”Weekly Bulletin, San Jose Church, 2425 Oak Crest Street, Austin 4, Texas, Rev. Joseph Houser C.S.C., Rev. Harold Hughes, C.S.C. followed by the schedule of services on the front page
+
+1962, Jan. 7 – 1962, Dec. 23
+
+1962, Dec. 30 – 1963, Dec. 29	Same as 1964, photo on front cover of church entrance used sometimes, architects rendering used sometimes, paper supplied by Mission Funeral Home
+
+1964, Jan. 5 – 1964, Aug. 23		8 ½ x 14 preprinted on reverse by Mission Funeral Home, front has a photograph of the entrance of the church and the steps leading up to the door, inside mimeographed with Spanish on page two and English on page three
+
+1964, February 9		8 ½ x 11 special bulletin for Scout Week, the multicolored printed front is stamped with, “E. L. Saenz & Troop 94”, mimeographed inside is Spanish and English
+
+1964, Sept, 6 – 1964, Dec. 27		8 ½ x 14 preprinted on reverse by Mission Funeral Home, front has inside mimeographed with Spanish on page two and English on page three, drawing of architects rendering of second church on level ground with glass doors
+
+1965, Jan. 3 – 1965, Dec. 26		8 ½ x 14 preprinted on reverse by Mission Funeral Home until April 25, then by Angel Funeral Home, inside mimeographed with Spanish on page two and English on page three, drawing of architects rendering of second church on level ground, pastor Joseph Houser with Rev. S. J. Ciatto until October 10 then Edward F. Abstetar  
+
+1966, Jan. 1 – 1966, Dec. 4		8 ½ x 14 preprinted reverse by Angel Funeral Home, inside mimeographed with Spanish on page two and English on page three, drawing of architects rendering of second church on level ground, pastor Joseph Houser and Rev. Edward F. Abstetar until March 6, then Joseph Houser and Rev. Francis S. Bennett
+
+1967, Jan. 22- 1967, May 14 		Same as 1968-1971 bulletin, Angel Funeral Home is the advertiser, pastor Joseph Houser
+
+1967, July 2 was a special bulletin for Father Houser’s Farewell
+
+1967, July 9 – 1967, July 16		Special bulletins, “Problems are solved by moving ahead”, “I’m Ready”, Angel Funeral Home is the advertiser
+
+1967, July 30 – 1968, Jan. 14	1969-1971 bulletin, pastor John Haley and Mike Mikan from July 23, 1976
+
+1968, Jan. 21 – 1969, Jan. 12		8 ½ x 14 preprinted on reverse by Angel Funeral Home, identical to 1969-1971 bulletins, pastor John Haley
+
+1969, Feb. 2 – 1969, Dec. 28		8 ½ x 14 preprinted on reverse by Angel Funeral Home, identical to 1970-1971 bulletins, pastor John Haley
+
+1970, Jan. 4 – 1970, Dec. 27		8 ½ x 14 preprinted on reverse by Liguorian Sunday Bulletin, Mo., no advertising, no customized front or back, inside mimeographed in one continuous page top to bottom, letter head does not name priests, pastor John Haley
+
+1971, Jan. 3 – 1971, Dec. 25		8 ½ x 14 preprinted on reverse side, advertising by Angel Funeral Home, mimeographed inside, Weekly Bulletin, front has a drawing of the second church on level ground, page 2 and 3 are all English and read from top of page two to bottom of page three as one continuous sheet, pastor John Haley
+
+1972, January 1 – 1972, April 2	8 ½ x 14 preprinted on reverse side, advertising by Angel Funeral Home, mimeographed inside, front has drawing of second church on level ground, pastor John Haley
+
+1972, April 23 – 1972, Dec. 31	Same as above but advertising by Mission Funeral Home, pastor John Hailey
+
+1974, September			8 ½ x 14 printed on reverse with advertising for Mission Funeral Home, front page showing drawing on church on level ground, mimeographed on inside, pastor John Haley
+
+1974, October – 1974, Dec. 22	San Jose News, 8 ½ x 11 paper, mimeographed on both sides, no advertising, letter head does not list priests, not folded, pastor John Haley
+
+1974, Dec. 29 – 1975, January 12	Weekly Bulletin, folded, used only for Holy Family, Epiphany, Baptism of the Lord and Third Sunday of the Year, mimeographed but with professionally done drawing on front page, usually the art work was very primitive, pastor John Haley
+
+1975, January 19 – 1975, May 4	Weekly Bulletin mimeographed on 8 ½ x 14 paper, sometimes folded and sometimes not folded, each bulletin was different, no advertising
+
+1975, January 5 - 1975, March 16	 the pastor was John Haley
+
+1975, March 23 - 1975, August 17	 the pastor was Mike Mikan
+
+1975, August 24 – 1975, Dec. 28 San Jose News, 8 ½ x 14 mimeographed on both sides, letter head with name and names of priests, Pastor Mike Mikan, Fr. Miguel Simone
+
+1976, January 11 – 1976, June 27	San Jose News, 8 ½ x 14 mimeographed on both sides, letter head with name, address, Mass schedule and names of priests, Pastor Lawrence Bauer
+
+1976, July 4				Same as above, pastor John Korscmar
+
+1976, July 11 – 1976, August 1	8 ½ x 14 preprinted sheet by Liguori Publications, no advertising, announcements on page 2, 3 and 4, front not customized, Pastor John Korcsmar
+
+1978, Sept. 10 – 1978, Dec. 27	8 ½ x 14 sheet printed on reverse by Lguori Publications, Missouri, mimeographed inside, no advertising, front page not customized, pastor John Korcsmar
+
+1979, January 1 – 1979, March	8 ½ x14 printed on reverse by J. S. Paluch Company, Chicago, mimeographed inside, no advertising, front page not customized, pastor John S. Korcsmar
+
+1979, April 1 – 			11x14 printed on both sides by J. S. Paluch Co, Humble, TX, advertising on page four, 36 small rectangles with advertising by local businesses, front lower ¼ page has church name, address and contact information, pastor John S. Korcsmar
+
+1981, June 7 – 1984, April 29		Printed on 11”x15” paper by Trinity Publications
+
+1981, June 7 – 1983, March 20	Drawing of second church on level ground, no bell tower, Pastor John Korcsmar
+
+1983, March 27 – 1984, April 29	Drawing of second church on level ground, no bell tower, Saint Joseph with mallet and chisel standing over and behind the church, Pastor Fred Underwood		
+
+1984, May 6 – 1987, Dec. 27		Printed on 11”x17”paper by Trinity Publications,
+
+1984, May 6 - 	 1984, August 4			Drawing of second church on level ground, no bell tower, Saint Joseph with mallet and chisel standing over and behind the church, Pastor Fred Underwood
+
+1984, August 12 – 1985, March 31	Three photographs stacked on each other, top photo: second church; middle photo: Father Elmer Gross at the altar, Risen Jesus behind the altar; lower photo: Father Underwood with children, Saint Joseph and Child in background, another image in background. The March 31 issue contained the obituary of Father Elmer Gross. Pastor Fred Underwood
+
+1985, April 7-	 1985, Dec. 15		Drawing of second church with canopy and bell tower, Pastor Fred Underwood
+
+1985, Dec. 22 – 1987, Dec. 27	The Risen Lord (modeled after Altar piece) is hovering over a drawing of the second church. Holy Cross insignia is to the left of church, Pastor Fred Underwood
+
+### Missing bulletins
+
+The following bulletins are missing from the archives of San Jose Parish.
+June 5, June 19 or July 3, 1966
+1967, May 14- 1967, July 9		 
+June and April 1969
+1976, August-1978, September
+1979, May-1982, May
+1981, January- 1981, June
+
+### Use of Spanish
+
+In March 1970, the bulletin announced that, “We have purchased special bulletins in Spanish for the first two masses each Sunday (6:30AM and 8:00AM) with all the proper prayers of each Sunday. This will be a great aid to our people…” (223:03/29/70). Similar bulletins were produced for the English-speaking Mass. Beginning on Easter Sunday and continuing until the 26th Sunday after Pentecost (November 15, 1970) the reverse side of the Sunday Bulletin contained all the words of the Mass from the Entrance Song to the Dismissal (223:03/29/70) (223:11/15/70). The Sunday Bulletin of July 18, 1971 also contained the words for the entrance, offertory, communion and final songs (223:07/18/71).
+
+For the first time in many months, parallel translations into Spanish appeared in the Sunday Bulletin in May 1983. The material seemed to be directed at Spanish-speaking men who were encouraged to join the Socios (223:08/05/83). Thereafter a Spanish insert was placed inside the printed bulletin. The insert was the Spanish language translation of selected items from the bulletin. Stella Trejo and Enrique Saenz did much of the translation (223:05/06/83).
+
+The Spanish translation began appearing in the body of the Sunday Bulletin instead in an insert in June 1983 (223:26/06/83) but, by October 1982, the four-page Sunday Bulletin could not contain both the English and Spanish language versions of the announcements. A two-sided insert was used along with the words, “Traducido al Espanol en hoja annexa al bulletin”, in the body of the English-language bulletin (223:09/09/83) (223:18/03/84).
+
+When space allowed, Rev. Underwood included a Spanish translation of “From the Pastor’s Corner” in the Sunday Bulletin. If not, then, “Traducido al Espanol en Hoja Anexa” (223: 27/04/1986). After March 1986 almost every Sunday Bulletin had both English and Spanish versions of the Pastor’s comments, in a section labeled, “Del Escritorio Del Padre” or “From the Pastor’s Desk” (223:30/03/1986). The Spanish version sometimes appeared in a separate sheet, **Traducido al Espanol en Hoja Anexa**. After Fr. Kirby became the administrator, Spanish reappeared in the Sunday Bulletin (223:17/10/1993).
+
+### The Bulletins were distributed at Mass
+
+Beginning November 21, 1982, the Sunday Bulletins was distributed after Mass instead of before Mass in an effort to encourage people to read it (223:21/11/82). At that time,                     
+Mrs. Nelda Martinez typed the bulletin. In December she was replaced by Margaret Garza who was a PHD candidate at UT. In 1982 Trinity Publications of Austin handled the advertising and printing of the Sunday Bulletin (223:26/12/82).
 
 ## Sunday Collections
 
@@ -567,7 +1029,7 @@ In March 1987, the parish signed a 20-year note for $1,700,000 to pay for the th
 
 Indebtedness as of January 31, 1991 was bonds $1,384,235.29, short term loans $555,997.76 and Cathedraticum owed $12,740.06 for a total debt of $1,952,973.11 (223:03/03/1991) (223:28/04/1991).
 
-### Envelopes
+### Collection Envelopes
 
 In December 1963, the Sunday Bulletin announced that boxes of Sunday Offering envelopes for persons with names beginning with letters A-H had been placed at the entrance of the church to be picked up (223:12/08/63). Each registered family received a box of envelopes but only 220 of the 600 families returned their envelopes. The pastor thought that another 30 families were contributing without using the envelopes. In August 1964, he said that of the $325 received on a particular Sunday, $225 was in the form of $1 bills (223:08/16/64) (223:09/06/64).
 
