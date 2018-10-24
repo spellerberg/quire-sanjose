@@ -7,7 +7,6 @@ type: essay
 ## 25th Anniversary
 
 The 25th Anniversary of San José Catholic Church was in 1964. In the 25 years since the church’s founding, the number of registered families grew from 65 to over 600 (1) (223:07/21/63) and, by 1964, over 100 children were making their First Communion every year (Photo 063) (223:04/12/64) (223:05/03/64). The first church on W. Mary Street had a seating capacity of 120 persons. In 1956, the church moved from the original building to its second building that had a seating capacity of 530 persons (120).
-1964 marked the 25th Anniversary of San José Catholic Church. In the 25 years since the church’s founding, the number of registered families grew from 65 to over 600 (1) (223:07/21/63) and, by 1964, over 100 children were making their First Communion every year (Photo063) (223:04/12/64) (223:05/03/64). The first church on W. Mary Street had a seating capacity of 120 persons. In 1956, the church moved from the original building to its second building that had a seating capacity of 530 persons (120).
 
 The church was now firmly established and growing. The population of South Austin was growing and he men and women who built the first church were still in their prime in 1964. They could look back with pride on their accomplishment. As was their custom, the parishioners decided to celebrate their Silver Jubilee with a fiesta.
 
@@ -340,7 +339,7 @@ The six Mexican-American parishes of Austin celebrated Cinco De Mayo in 1984 wit
 
 Communal meals are an essential element of community life. Like all intentional communities, San José Parish has a long tradition of sharing food. Food was shared at Jamaicas, bazaars, fiestas and other events sponsored by the parish. San José also has a long tradition of serving breakfasts, lunches and take-out food as fundraisers for the parish, its buildings or its sodalities. This article describes dinners, picnics and lawn parties that are not described elsewhere.
 
-### A dinner program replaced in May Bazaar
+### A dinner program replaced the May Bazaar
 
 In February 1983, the Bazaar Committee decided to discontinue the May bazaars that had been held at the City Auditorium since the 1950s. The City imposed new policies that made events at the auditorium too expensive and too restrictive. Monthly dances and dinners at the Community Center replaced the income from the May Bazaar. Dances would be held monthly (except during Lent) and organizations, choirs and individuals would be recruited to sell tickets based on the model used for the February 5, 1983 pre-Lent dance. The first Parish Dinner under the new policy would be a Mexican dinner on March 20th to celebrate St. Joseph’s Day.
 
