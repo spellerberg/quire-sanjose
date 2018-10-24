@@ -13,7 +13,7 @@ Texas Catholic Conference of Bishops
 6225 E. Hwy 290
 Austin, TX 78723
 
-The following list of items is housed in the Catholic Archives of Texas. Each document is identified by Source # and first or most important phrase. A full list of sources is in article 13.3.b.
+The following list of items is housed in the Catholic Archives of Texas. Each document is identified by Source # and first or most important phrase. A full list of sources is in article labeled Sources.
 
 1. Archdiocese of San Antonio, First Annual Report for 1940, 4 legal size pages
 
@@ -188,7 +188,7 @@ Austin History Center
 810 Guadalupe Street
 Austin, TX 78701
 
-The following list of items is housed in the Austin History Center. Each document is identified by Source # and first or most important phrase. A full list of sources is in article 13.3.b.
+The following list of items is housed in the Austin History Center. Each document is identified by Source # and first or most important phrase. A full list of sources is in article labeled Sources.
 
 110. Mexico Simplicity Keynotes San Jose, July 2, 1950, American Statesman
 
@@ -340,7 +340,7 @@ San Jose Catholic Church
 2435 Oak Crest Ave.
 Austin, TX 78704
 
-The following list of items is found in the Archives of San Jose Catholic Church. Each document is identified by Source # and first or most important phrase. A full list of sources is in article 13.3.b.
+The following list of items is found in the Archives of San Jose Catholic Church. Each document is identified by Source # and first or most important phrase. A full list of sources is in article labeled Sources.
 
 #### Documents
 
@@ -534,7 +534,7 @@ Jan. 19, 1976 to May 24, 1981, L.T. Bauer, Michael A. Simone, John S. Korscmar
 
 ##### Location of burials
 
-The location of burial changed substantially over time.
+The location of burial changed substantially over time. Over time, the preferred burial location for San Jose parishioners became Assumption Cemetery.
 
 Location of burial, 1949-1952: Old San Jose (14), New San Jose (12), Luz (14), Austin Memorial (5), Calvary (2), Mendoza (2), total 49
 
@@ -557,23 +557,6 @@ Location of burial, 1974-1976: Luz (7), Assumption (40), Mt. Calvary (1), Austin
 Location of burial, 1977-1979: Luz (5), Assumption (52), Mt. Calvary (1), other (4), total 62
 
 Location of burial, 1980- May 1981: Luz (6), Assumption (30), Forest Oaks (1), International (1), Mendoza (1), other (2), total 41
-
-Over time, the preferred burial location was Assumption Cemetery. The table is a tally of burial locations from the Death Register, 1939-1981, in percentages (except for Total column that shows the actual number of burials per decade).
-
-Year	Assumption	Luz	San Jose	Garfield	Mendoza	Mt. Calvary	Total
-1939-1949	0				43	32				8					3					3					141
-1949-1952	0				29	53				0					4					4					49
-1953-1955	10			56	10				0					0					18				28
-1956-1958	36			36	6					0					0					8					36
-1959-1961	55			8		3					0					0					2					38
-1962-1964	84			0		0					0					0					5					56
-1965-1967	76			10	0					0					0					4					49
-1968-1970	82			10	0					0					0					0					34
-1971-1973	80			3		0					0					0					0					36
-1974-1976	78			14	0					0					0					0					51
-1977-1979	84			8		0					0					0					0					62
-1980-1981	73			15	0					0					0					0					41
-Note: Numbers under cemetery names are percentages. Numbers under Total are number of burials.
 
 #### Death Register, May 24, 1981 to July 26, 1995, San Jose Church
 
@@ -1422,7 +1405,7 @@ www.sanjosechurch.org, accessed March 2, 2014,
 
 ## Translation from the original Spanish to English
 
-The Catholic Archives of Texas has preserved a poster dated May 5, 1941 for a Jamaica at San Jose Mission. The poster is in Spanish. The English translation reads as follows. 
+The Catholic Archives of Texas has preserved a poster dated May 5, 1941 for a Jamaica at San Jose Mission. The poster is in Spanish. The English translation reads as follows.
 
 ### AN INVITATION!
 
