@@ -405,378 +405,369 @@ In May 1989, the pastor distributed a letter as an insert in the Sunday Bulletin
 
 ### Parish Administrators
 
-Alfred J. Mendez, Alfred, C.S.C.
+Alfred J. Mendez, Alfred, C.S.C., August 15, 1939-Feb. 11, 1942 San Jose Mission; Feb. 11, 1942-April 6, 1947 San Jose Mission; April 6, 1947-Sept. 3, 1948 Pastor, San Jose Parish
 
-August 15, 1939-Feb. 11, 1942 San Jose Mission
+Joseph Houser, C.S.C., Sept. 3, 1948-July 2, 1967
 
-Feb. 11, 1942- April 6, 1947 San Jose Mission
+John Haley, C.S.C., July 1967-March 1975
 
-April 6, 1947- Sept. 3, 1948 Pastor, San Jose Parish
+Michael Mikan, C.S.C., March 1975-November 1975
 
-Joseph Houser, C.S.C.		Sept. 3, 1948- July 2, 1967
+Lawrence T. Bauer, C.S.C., November 1975-July 1976
 
-John Haley, C.S.C.			July 1967- March 1975
+John S. Korcsmar, C.S.C., July 1976-November 7, 1982
 
-Michael Mikan, C.S.C.		March 1975-November 1975
+Underwood, Fred C.S.C., November 7, 1982-April 1993
 
-Lawrence T. Bauer, C.S.C. 		November 1975-July 1976
+Kirby D. Garner, Diocesan, April 1993-2002
 
-John S. Korcsmar, C.S.C. 		July 1976- November 7, 1982
+Msgr. Tom Frank, Diocesan, 2002-2013
 
-Underwood, Fred CSC 		November 7, 1982- April 1993
+Alberto J. Borruel, Diocesan, 2013-July 2018
 
-Kirby D. Garner, Diocesan		April 1993-2002
-
-Msgr. Tom Frank. Diocesan		2002-2013
-
-Alberto J. Borruel, Diocesan		2013- July 2018
-
-Jairo Sandoval-Pliego, Diocesan	July 2018-
+Jairo Sandoval-Pliego, Diocesan, July 2018
 
 ### Associate Pastors and visiting priests and seminarians
 
-Joseph Houser, CSC			  1940
+Joseph Houser, C.S.C.,1940
 
-James W. Donahue, C.S.C.	1940	Associate Pastor
+James W. Donahue, C.S.C., 1940	Associate Pastor
 
-James A. Donnelly, CSC		1940
+James A. Donnelly, C.S.C., 1940
 
-Thomas J. Culhane, CSC		1941-1945
+Thomas J. Culhane, C.S.C., 1941-1945
 
-Peter Mueller, CSC        1943, Dec. 31, 1946- April 3, 1947	Associate Pastor St.
+Peter Mueller, C.S.C., 1943, Dec. 31, 1946-April 3, 1947, Associate Pastor of St. Ignatius assigned to work at San Jose, April 6, 1947, Associate Pastor
 
-Ignatius to work at San Jose, April 6, 1947- 		Associate Pastor
+Joel C. Atwood, C.S.C., Sept. 6, 1947-1951, Assistant Pastor
 
-Joel C. Atwood, CSC		Sept. 6, 1947-1951 Assistant Pastor
+James A. Donnelly, C.S.C., Jan. 2, 1947-April 6, 1947, Associate Pastor of St. Ignatius assigned to work at San Jose, April 6, 1947-1948, Associate Pastor
 
-James A. Donnelly, CSC,   Jan. 2, 1947- April 6, 1947 Associate Pastor St. Ignatius to work at San Jose, April 6, 1947- 	1948	Associate Pastor
+Elmer Vincent Rupp, C.S.C., 1948-1952
 
-Elmer Vincent Rupp, C.S.C. 		1948-1952
+John Driscoll, C.S.C., 1948
 
-John Driscoll, C.S.C. 		1948
+Edwin Bauer, C.S.C., 1948
 
-Edwin Bauer, C.S.C. 			1948
+Frank Weber, C.S.C., 1948	Weber helped build the rectory.
 
-Frank Weber, C.S.C. 			1948	Helped build the rectory
+Brother Anthony J. Weber, C.S.C., 1948 	Brother Weber helped build the rectory.
 
-Brother Anthony J. Weber, C.S.C.	1948 	Helped build the rectory
+Thomas Culhane, C.S.C.,	1948 	Culhane helped build the rectory.
 
-Thomas Culhane, CSC		1948 	Helped build the rectory
+Driscoll, John, C.S.C., 1948
 
-Driscoll, John, CSC		1948
+Charles A. Delaney, C.S.C.,	1948
 
-Charles A. Delaney, CSC		1948
-
-Bauer, Edwin, CSC			    1948  
+Bauer, Edwin, C.S.C.,	1948  
 
 Vincent Delavy
 
 Brother Joseph Caine
 
-John Driscoll, C.S.C. 			1951-1953
+John Driscoll, C.S.C., 1951-1953
 
-Charles A. Delaney, C.S.C. 	1952-1953
+Charles A. Delaney, C.S.C., 1952-1953
 
-Frank Weber, C.S.C. 			  1958-1959
+Frank Weber, C.S.C., 1958-1959
 
-Brother Anthony J. Weber, C.S.C.	1958-1959
+Brother Anthony J. Weber, C.S.C., 1958-1959
 
-Thomas J. Culhane, CSC		  1959-1960
+Thomas J. Culhane, C.S.C., 1959-1960
 
-Vincent Delavey, CSC		    1960-1961
+Vincent Delavey, C.S.C., 1960-1961
 
-Harold J. Hughes, C.S.C. 		1961-1962
+Harold J. Hughes, C.S.C., 1961-1962
 
-Samuel J. Ciatto, C.S.C. 		September 1962- July 1965	Associate Pastor
+Samuel J. Ciatto, C.S.C., September 1962-July 1965, Associate Pastor
 
-Edward F. Abstetar, C.S.C. 	1965-February 1966 		Associate Pastor
+Edward F. Abstetar, C.S.C., 1965-February 1966, Associate Pastor
 
-Francis S. Bennett C.S.C. 	February 1966-April 1966	Associate Pastor
+Francis S. Bennett C.S.C., February 1966-April 1966, Associate Pastor
 
-Lawrence Saha, C.S.C.	      June-July 1966
+Lawrence Saha, C.S.C., June-July 1966
 
-John Haley, CSC		April 1967-July 1967	Associate Pastor
+John Haley, C.S.C., April 1967-July 1967, Associate Pastor
 
-Mike Mikan CSC		July 1967- March 1975	Ass. Pastor
+Mike Mikan C.S.C., July 1967- March 1975, Ass. Pastor
 
-Brother Gregory 	July 1967
+Brother Gregory, July 1967
 
-Robert Gilmore		May 1969-September 1969
+Robert Gilmore, May 1969-September 1969
 
-Ernest Sweeney, S.J.		December 1969
+Ernest Sweeney, S.J., December 1969
 
-Ray Canizales, CSC, Holy Cross seminarian, December 1969
+Ray Canizales, C.S.C., Holy Cross seminarian, December 1969
 
-Robert Gilmore, CSC		December 1970-July 1971	in residence
+Robert Gilmore, C.S.C.,	December 1970-July 1971	in residence
 
-Robert Villegas, CSC		1972-1973
+Robert Villegas, C.S.C., 1972-1973
 
-Frank Gillespie, SJ		  August 1974
+Frank Gillespie, S.J., August 1974
 
-Bob Gilmore CSC		Departed March 1975	Associate Pastor
+Bob Gilmore C.S.C.,	Departed March 1975, Associate Pastor
 
-Miguel Simone, M.M.		August 1975-June 1976	Associate Pastor
+Miguel Simone, M.M., August 1975-June 1976, Associate Pastor
 
-Bill Loughran, seminarian	July 1975
+Bill Loughran, Seminarian, July 1975
 
-Jeffrey Iacobazzi, seminarian 	July-August 1976
+Jeffrey Iacobazzi, Seminarian, July-August 1976
 
-Larry Bauer			July 1976-	Associate Pastor
+Larry Bauer, C.S.C., July 1976,	Associate Pastor
 
-Peter Mueller, CSC		June 1981
+Peter Mueller, C.S.C., June 1981
 
-Joseph F. Houser, CSC 	August 1982-August 26, 1983
+Joseph F. Houser, C.S.C., August 1982-August 26, 1983
 
-Francis R. Weber, CSC	August 1982- June 1983
+Francis R. Weber, C.S.C.,	August 1982-June 1983
 
-Jack Keefe 			July 1982
+Jack Keefe, July 1982
 
-Eddie Reyes, Holy Cross candidate Dec. 1982-August 1983
+Eddie Reyes, Holy Cross candidate, Dec. 1982-August 1983
 
-Elmer Gross, CSC		Aug. 1983-Feb. 1985	Associate Pastor
+Elmer Gross, C.S.C., Aug. 1983-Feb. 1985, Associate Pastor
 
-Charlie Van Winkly, CSC	October 1984
+Charlie Van Winkly, C.S.C.,	October 1984
 
-Herman Reith, CSC		  February-April 1985
+Herman Reith, C.S.C.,	February-April 1985
 
-Joseph Houser, CSC		April 1985, July 1985
+Joseph Houser, C.S.C., April 1985, July 1985
 
-Peter Logsdon, CSC		July 1985
+Peter Logsdon, C.S.C., July 1985
 
-George Menke, SJ		  July 1985
+George Menke, S.J.,	July 1985
 
-Leonard Paul, CSC		Aug. 1985-April 1987	Ass. Pastor
+Leonard Paul, C.S.C.,	Aug. 1985-April 1987, Ass. Pastor
 
-Alfredo Vasquez, Deacon	May-June 1986
+Alfredo Vasquez, Deacon, May-June 1986
 
+Ray Wilhelm, O.M.I., July-August 1986
 
-Ray Wilhelm, O.M.I. 		July-August 1986
+Isidore Garcia, O.M.I.,	July-August 1986
 
-Isidore Garcia, O.M.I.		July-August 1986
+Charlie Van Winkly, C.S.C.,	July-August 1986
 
-Charlie Van Winkly, CSC	July-August 1986
+Charlies Van Winkly, C.S.C., August 1986-July 3, 1988, Associate Pastor
 
-Charlies Van Winkly, CSC	August 1986-July 3, 1988	Associate Pastor
+John Phalen, C.S.C., June 1987
 
-John Phalen, CSC		June 1987
+Jim Phalan, C.S.C., seminarian, June 1987
 
-Jim Phalan, CSC seminarian	June 1987
+Jim Palmer, C.S.C., seminarian, June 1987
 
-Jim Palmer, CSC seminarian	June 1987
+Leonard Paul, C.S.C.,	January 1988-August 1988, Associate Pastor (part-time)
 
-Leonard Paul		January 1988-August 1988	Associate Pastor (part-time)
+Herman Reith, C.S.C.,	February 1988
 
-Herman Reith, CSC		February 1988
+Frank Grogan, C.S.C.,	September 4, 1988-September 9, 1990, Associate Pastor
 
-Frank Grogan, CSC		September 4, 1988-September 9, 1990 Associate Pastor
+Leonard Paul, C.S.C.,	August 1988-June 1989, Associate Pastor
 
-Leonard Paul			August 1988-June 1989 Associate Pastor
+Christopher Scadron, December 1989-February 1990
 
-Christopher Scadron		December 1989-February 1990
+Joe Berra, S.J., June 1990
 
-Joe Berra, SJ			June 1990
+Victor Goertz, June 1990
 
-Victor Goertz			June 1990
+Joseph Devliegher, C.S.C., July 1, 1990-October 1992, Associate Pastor
 
-Joseph Devliegher, C.S.C.	July 1, 1990- October 1992 Associate Pastor
+Herman Reith, C.S.C.,	February-March 1991
 
-Herman Reith, CSC		February-March 1991
+Damien Hinojosa, Spring 1993-May 1993
 
-Damien Hinojosa		Spring 1993-May 1993
+Pascal Kabura, Spring 1993-May 1993
 
-Pascal Kabura			Spring 1993-May 1993
+John Payne, C.S.C.,	November 1992-April 1993, Associate Pastor (part-time)
 
-John Payne, CSC		November 1992-April 1993	Associate Pastor (part-time)
+Le-Minh Joseph Pham,	July 1993-1996,	Associate Pastor
 
-Le-Minh Joseph Pham	July 1993-1996	Associate Pastor
+Roger Hall, 1996-1997
 
-Roger Hall			   1996-1997
+Dick Hudson, 1997
 
-Dick Hudson			   1997
+Jairo Lopez, 1995-1996, 1997-1999
 
-Jairo Lopez			   1995-1996, 1997-1999
+Joe McNeil, 1996-1997
 
-Joe McNeil			   1996-1997
+Miguel Angel Paredes, 1998-1999, 2002-2003
 
-Miguel Angel Paredes		1998-1999, 2002-2003
+Carlos G. Puerto, 1999-2000
 
-Carlos G. Puerto	  1999-2000
+George Joseph, 1999-2002
 
-George Joseph			  1999-2002
+Ernesto Elizondo, 2000-2002
 
-Ernesto Elizondo		2000-2002
+Miguel Angel Paredes, 2002-2003
 
-Miguel Angel Paredes		2002-2003
+Juan Carlos Lopez, November 2003-2006, Associate Pastor
 
-Juan Carlos Lopez		November 2003-2006	Associate Pastor
+Kevin Rai, 2002-2013, Associate Pastor   
 
-Kevin Rai	              2002-2013  	Associate Pastor   
+Melesio Peter Espinoza, 2005, In residence
 
-Melesio Peter			2005-		In residence
+Miguel Duarte, 2006-2009
 
-Miguel Duarte			2006-2009
+John G. Boiko. 2010-2016	Associate Pastor
 
-John G. Boiko			2010-2016	Associate Pastor
-
-Barry William Cuba		2015-
+Barry William Cuba, 2015
 
 ### Death Register
 
 When a baptized Catholic dies, the officiant is supposed to notify the parish where the person was baptized so the records can be brought up to date. Parish Death Registers can be used to identify priests who performed funerals of San Jose parishioners. The following list covers the period from 1939 to 2017 and includes priests from other parishes who provided information to San Jose. The dates after the names of the officiant are the first and last date recorded in the Registers if there are multiple dates in the Register.
 
-A. Mendez		Aug. 23, 1939
+A. Mendez, Aug. 23, 1939
 
-A. Send		May 11, 1941
+A. Send, May 11, 1941
 
-Thos Culhane		Feb. 15, 1942; June 23, 1945; Nov. 12, 1959; Feb. 19 1975
+Thos Culhane,	Feb. 15, 1942; June 23, 1945; Nov. 12, 1959; Feb. 19 1975
 
-C. Fuuks		June, 1942
+C. Fuuks,	June, 1942
 
-Pete F. Mueller	Oct. 1, 1945; April 7, 1948; April 28, 1991
+Pete F. Mueller, Oct. 1, 1945; April 7, 1948; April 28, 1991
 
-J. A. Donnelly		Jan. 29, 1947; March 1, 1947
+J. A. Donnelly,	Jan. 29, 1947; March 1, 1947
 
-Joel C. Atwood	March 12, 1948; Aug. 14, 1949
+Joel C. Atwood,	March 12, 1948; Aug. 14, 1949
 
-Elmer V. Rupp	July 28, 1948; Feb. 7, 1960
+Elmer V. Rupp,	July 28, 1948; Feb. 7, 1960
 
-Joseph Houser	March 13, 1949; April 24, 1967; April 12, 1983, Nov. 8 1984; March 22, 1986
+Joseph Houser,	March 13, 1949; April 24, 1967; April 12, 1983, Nov. 8 1984; March 22, 1986
 
-George Green, OMI	July 14, 1949
+George Green, O.M.I.,	July 14, 1949
 
-Diez OMI		June 7, 1951
+Diez O.M.I., June 7, 1951
 
-Chas Delaney		April 21, 1952; April 17, 1954
+Chas Delaney,	April 21, 1952; April 17, 1954
 
-Lawrence Bauer	May 30, 1955
+Lawrence Bauer,	May 30, 1955
 
-A. Weber		Aug. 4, 1958; Aug. 2, 1982
+A. Weber,	Aug. 4, 1958; Aug. 2, 1982
 
-Harold Hughes	March 22, 1961; March 19, 1962
+Harold Hughes,	March 22, 1961; March 19, 1962
 
-H. Hooks, OMI	August 21, 1962
+H. Hooks, O.M.I.,	August 21, 1962
 
-S. J. Ciatto		Sept. 15, 1962; July 5, 1965
+S. J. Ciatto,	Sept. 15, 1962; July 5, 1965
 
-Francis Bennett	July 23, 1966
+Francis Bennett, July 23, 1966
 
-John Haley		May 20, 1967; Dec. 31, 1974
+John Haley,	May 20, 1967; Dec. 31, 1974
 
-Michael Mikan	June 24, 1967; Oct. 11, 1975
+Michael Mikan,	June 24, 1967; Oct. 11, 1975
 
-Bautista, Robert	June 26, 1968
+Robert Bautista,	June 26, 1968
 
-Larry T. Bauer	Jan. 21, 1976; June 30, 1976
+Larry T. Bauer,	Jan. 21, 1976; June 30, 1976
 
-Michael A. Simone	Jan. 29, 1976
+Michael A. Simone, Jan. 29, 1976
 
-John S. Korsmar	June 8, 1976; Sept. 22 1982
+John S. Korsmar,	June 8, 1976; Sept. 22 1982
 
-L. Peter Logsdon	May 23, 1979; Dec. 24, 1981
+L. Peter Logsdon,	May 23, 1979; Dec. 24, 1981
 
-Richard Narvey	Dec. 1, 1980
+Richard Narvey,	Dec. 1, 1980
 
-Jerome Burnett OMI	Jan. 17, 1980
+Jerome Burnett OMI,	Jan. 17, 1980
 
-John T. Payne CSC	Aug. 22, 1981; June 25, 1993
+John T. Payne C.S.C.,	Aug. 22, 1981; June 25, 1993
 
-Frank Weber		Sept. 22, 1982; Oct. 18, 1982
+Frank Weber, Sept. 22, 1982; Oct. 18, 1982
 
-George Joseph		Dec. 23, 1982
+George Joseph, Dec. 23, 1982
 
-Fred Underwood		Jan. 14, 1983; Nov. 24, 1992
+Fred Underwood,	Jan. 14, 1983; Nov. 24, 1992
 
-Charles Banks		June 2, 1983
+Charles Banks, June 2, 1983
 
-Elmer Gross CSC		Sept. 24, 1983; Jan. 9 1985
+Elmer Gross C.S.C.,	Sept. 24, 1983; Jan. 9 1985
 
-Francis McFarland	May 27, 1985, June 8, 1988
+Francis McFarland,	May 27, 1985, June 8, 1988
 
-Charles Van Winkle CSC	July 10, 1985; June 29, 1988
+Charles Van Winkle C.S.C.,	July 10, 1985; June 29, 1988
 
-Leonard Paul CSC		Aug. 12, 1985; June 24 1989
+Leonard Paul C.S.C.,	Aug. 12, 1985; June 24 1989
 
-Richard Teall			Jan. 9, 1987
+Richard Teall,	Jan. 9, 1987
 
-Ray Wilhelm OMI		April 13, 1987; May 2, 1988
+Ray Wilhelm O.M.I.,	April 13, 1987; May 2, 1988
 
-Francis Grogan CSC		Nov. 1, 1988; Aug. 6 1990
+Francis Grogan C.S.C.,	Nov. 1, 1988; Aug. 6 1990
 
-Joe Devliegher CSC		July 11, 1990; Sept. 11 1992
+Joe Devliegher C.S.C., July 11, 1990; Sept. 11 1992
 
-Deacon Enrique Saenz	Sept. 13, 1989; March 25, 1995
+Deacon Enrique Saenz,	Sept. 13, 1989; March 25, 1995
 
-Elmer Holtman CSC		Nov. 25, 1990
+Elmer Holtman C.S.C.,	Nov. 25, 1990
 
-Damien Hinojosa CSC	July 15, 1991; Feb. 20 1999
+Damien Hinojosa C.S.C.,	July 15, 1991; Feb. 20 1999
 
-Kirby D. Garner		May 7, 1993; Jan. 12 2002
+Kirby D. Garner, May 7, 1993; Jan. 12 2002
 
-Manuel Espinoza		July 22, 1993
+Manuel Espinoza, July 22, 1993
 
-Le Minh Joseph Pham	Aug. 14, 1993; April 22 1996
+Le Minh Joseph Pham,	Aug. 14, 1993; April 22 1996
 
-Deacon George Joseph Jr.	Dec. 24, 1993; Oct. 10, 2002
+Deacon George Joseph Jr.,	Dec. 24, 1993; Oct. 10, 2002
 
-Deacon John Rivera		December 24, 1993; Nov. 2, 1996
+Deacon John Rivera,	December 24, 1993; Nov. 2, 1996
 
-Richard Tijerina		May 10, 1994; Dec. 7, 2017
+Richard Tijerina,	May 10, 1994; Dec. 7, 2017
 
-B. Michael Wood		April 18, 1996
+B. Michael Wood, April 18, 1996
 
-Joel D. McNeil			July 13, 1996; Sept. 17 1996
+Joel D. McNeil,	July 13, 1996; Sept. 17 1996
 
-Rodger Hall			December 27, 1996; July 18, 1998
+Rodger Hall, December 27, 1996; July 18, 1998
 
-Richard Hudson		April 1, 1997; May 13, 1997
+Richard Hudson,	April 1, 1997; May 13, 1997
 
-Jairo López			Nov. 25, 1997; Jan. 8 1999
+Jairo López,	Nov. 25, 1997; Jan. 8 1999
 
-Deacon Alfredo Vásquez	Dec. 26, 1997
+Deacon Alfredo Vásquez,	Dec. 26, 1997
 
-Deacon Romeo Sanchez	Dec. 16, 1998; April 23, 2010
+Deacon Romeo Sanchez,	Dec. 16, 1998; April 23, 2010
 
-Miguel Angel Paredes	April 27, 1998; April 25, 2003
+Miguel Angel Paredes,	April 27, 1998; April 25, 2003
 
-Frank Macias			May 16, 1998
+Frank Macias,	May 16, 1998
 
-Deacon Joe Gutierrez		June 6, 1998; Feb. 26, 2010
+Deacon Joe Gutierrez,	June 6, 1998; Feb. 26, 2010
 
-Carlos Puerto			March 9, 1999; Feb. 2, 2000
+Carlos Puerto, March 9, 1999; Feb. 2, 2000
 
-Ernesto Elizondo		July 24, 2000, Jan. 17. 2002
+Ernesto Elizondo,	 July 24, 2000, Jan. 17. 2002
 
-Deacon Alfredo Benavides	July 27, 2000; Dec. 20, 2006
+Deacon Alfredo Benavides,	July 27, 2000; Dec. 20, 2006
 
-Luis Moreno			March 14, 2002; May 20 2002
+Luis Moreno, March 14, 2002; May 20 2002
 
-Tom Frank			July 10, 2002; Jan. 5, 2007; June 13, 2014
+Tom Frank, July 10, 2002; Jan. 5, 2007; June 13, 2014
 
-Kevin Rai			July 9, 2002; July 29, 2009
+Kevin Rai, July 9, 2002; July 29, 2009
 
-Juan Carlos Lopez		July 23, 2003; June 4, 2006
+Juan Carlos Lopez, July 23, 2003; June 4, 2006
 
-Melesio Peter			May 3, 2006; Sept. 23, 2008
+Melesio Peter Espinoza,	May 3, 2006; Sept. 23, 2008
 
-Miguel Duarte		Aug. 20, 2006; Sept. 30, 2009
+Miguel Duarte, Aug. 20, 2006; Sept. 30, 2009
 
-Deacon Jesse Martinez	Oct. 14, 2006; Sept. 9, 2014
+Deacon Jesse Martinez,	Oct. 14, 2006; Sept. 9, 2014
 
-John Boiko			Jan. 28, 2010; July 7, 2016
+John Boiko,	Jan. 28, 2010; July 7, 2016
 
-Barry Cuba			Dec. 30, 2014; July 8, 2016
+Barry Cuba,	Dec. 30, 2014; July 8, 2016
 
-Payden Blevins		Aug. 5, 2016; Feb. 3, 2017
+Payden Blevins,	Aug. 5, 2016; Feb. 3, 2017
 
-Sean Dewitt			Aug. 3, 2016
+Sean Dewitt, Aug. 3, 2016
 
-Alberto J. Borruel		June 25, 2014; May 26, 2017
+Alberto J. Borruel,	June 25, 2014; May 26, 2017
 
-Greg Gerhart			July 25, 2017
+Greg Gerhart,	July 25, 2017
 
-Deacon Agapito Lopez	March 18, 2017
+Deacon Agapito Lopez,	March 18, 2017
 
-Augustine Ariwaodo		Feb. 17, 2017; June 5, 2017
+Augustine Ariwaodo,	Feb. 17, 2017; June 5, 2017
 
 ## Sunday Bulletin
 
@@ -956,8 +947,7 @@ When space allowed, Rev. Underwood included a Spanish translation of “From the
 
 ### The Bulletins were distributed at Mass
 
-Beginning November 21, 1982, the Sunday Bulletins was distributed after Mass instead of before Mass in an effort to encourage people to read it (223:21/11/82). At that time,                     
-Mrs. Nelda Martinez typed the bulletin. In December she was replaced by Margaret Garza who was a PHD candidate at UT. In 1982 Trinity Publications of Austin handled the advertising and printing of the Sunday Bulletin (223:26/12/82).
+Beginning November 21, 1982, the Sunday Bulletins was distributed after Mass instead of before Mass in an effort to encourage people to read it (223:21/11/82). At that time,   Mrs. Nelda Martinez typed the bulletin. In December she was replaced by Margaret Garza who was a PHD candidate at UT. In 1982 Trinity Publications of Austin handled the advertising and printing of the Sunday Bulletin (223:26/12/82).
 
 ## Sunday Collections
 
