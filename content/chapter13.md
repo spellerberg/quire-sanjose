@@ -509,14 +509,14 @@ Contents: Deaths, San Jose Church and Missions, August 23, 1939,
 Page 72 to 86, 141 entries between August 3, 1939 and Nov. 20, 1949
 Place of burial: Maria de La Luz 60 persons or 42% of the total; Old San Jose 37 persons or 26% of the total; New San Jose 8 persons or 6% of the total; Garfield 12 persons or 8% of the total; other Mexican Cemeteries 11 persons or 8% of the total; other cemeteries 13 persons or 9% of the total.
 
-### Death Register
+#### Death Register
 
 Death Register contains name, age, name and address of nearest relative, date of death, date of burial, attending priest and sacraments, place of burial and remarks.
 
 Death Register, Sept. 1, 1949 to May 26, 1981 for Guadalupe (Garfield), Santa Cruz, San Francisco, La Luz and San Jose Churches, Number of pages 50, number of entries approx. 500
 The first entry on November 1, 1949 was entered by Rev E. V. Rupp, C.S.C.
 
-#### Attending Priests
+##### Attending Priests
 
 Attending Priests for the time periods specified below were as follows:
 
@@ -532,7 +532,7 @@ May 18, 1967 to Oct. 11, 1975, John Haley, Michael Mikan, Robert Bautista, Thoma
 
 Jan. 19, 1976 to May 24, 1981, L.T. Bauer, Michael A. Simone, John S. Korscmar
 
-#### Location of burials
+##### Location of burials
 
 The location of burial changed substantially over time.
 
@@ -559,31 +559,21 @@ Location of burial, 1977-1979: Luz (5), Assumption (52), Mt. Calvary (1), other 
 Location of burial, 1980- May 1981: Luz (6), Assumption (30), Forest Oaks (1), International (1), Mendoza (1), other (2), total 41
 
 Over time, the preferred burial location was Assumption Cemetery. The table is a tally of burial locations from the Death Register, 1939-1981, in percentages (except for Total column that shows the actual number of burials per decade).
-		Assumption	Luz San Jose Garfield Mendoza Mt. Calvary Total number
 
-1939-1949		0	   43	   32	     8	        3	      3		       141
-
-1949-1952		0	   29	   53	     0          4	      4		       49		
-
-1953-1955		10	 56	   10	     0	        0	      18		     28
-
-1956-1958		36	 36	   6			                    8		       36
-
-1959-1961		55	 8	   3			                    2		       38
-
-1962-1964		84	 0	   0			                    5		       56
-
-1965-1967		76	 10				                        4  		     49
-
-1968-1970		82	 10				                        0		       34
-
-1971-1973		80	 3						                               36
-
-1974-1976		78	 14						                               51
-
-1977-1979		84	 8						                               62
-
-1980-1981		73	 15						                               41
+Year	Assumption	Luz	San Jose	Garfield	Mendoza	Mt. Calvary	Total
+1939-1949	0				43	32				8					3					3					141
+1949-1952	0				29	53				0					4					4					49
+1953-1955	10			56	10				0					0					18				28
+1956-1958	36			36	6					0					0					8					36
+1959-1961	55			8		3					0					0					2					38
+1962-1964	84			0		0					0					0					5					56
+1965-1967	76			10	0					0					0					4					49
+1968-1970	82			10	0					0					0					0					34
+1971-1973	80			3		0					0					0					0					36
+1974-1976	78			14	0					0					0					0					51
+1977-1979	84			8		0					0					0					0					62
+1980-1981	73			15	0					0					0					0					41
+Note: Numbers under cemetery names are percentages. Numbers under Total are number of burials.
 
 #### Death Register, May 24, 1981 to July 26, 1995, San Jose Church
 
@@ -633,7 +623,7 @@ March 30, 2002 22 entries; May 23, 2002 129 entries; Sept. 11- Oct. 13, 2002 2 e
 
 #### Vol. 3, Confirmation, dates from after December 5, 2015
 
-## Marriages Register
+## Marriage Register
 
 ### Marriage Register, Vol. 1, 09/03/1939- 06/17/1978
 
@@ -879,7 +869,7 @@ March 31, 2018 RCIA 20 entries; April 21, 2018 3 entries; April 22, 2018 110 ent
 
 In the text, the number in parenthesis refers to a source in this list. For example (1) at the end of a sentence means that the information came from the “First Annual Report for 1940, San Jose, Austin, Texas” which is #1 in this list. That document can be found in the Catholic Archives of Texas in Austin.
 
-Source #223 is the San Jose Sunday Bulletin. The notation for references the date the bulletin was published. For example 223:16/09/2018 is the September 16, 2018 edition of the Sunday Bulletin. Prior to August 1971, the notation is 223:month/day/year. After August 1971, the notation is 223:day/month/year.
+Source #223 is the San Jose Sunday Bulletin. The notation references the date the bulletin was published. For example 223:16/09/2018 is the September 16, 2018 edition of the Sunday Bulletin. Prior to August 1971, the notation is 223:month/day/year. After August 1971, the notation is 223:day/month/year.
 
 1, Méndez, Alfredo C.S.C., “First Annual Report for 1940, San Jose, Austin, Texas”, Archdiocese of San Antonio, Parish Collections, San Jose File, Catholic Archives of Texas, Austin, Texas
 
@@ -1432,6 +1422,8 @@ www.sanjosechurch.org, accessed March 2, 2014,
 
 ## Translation from the original Spanish to English
 
+The Catholic Archives of Texas has preserved a poster dated May 5, 1941 for a Jamaica at San Jose Mission. The poster is in Spanish. The English translation reads as follows. 
+
 ### AN INVITATION!
 
 The Festival Committee of the San José Mission Church
@@ -1449,6 +1441,7 @@ Program
 6:00-7:00PM	Musical performance by the L. Villanueva Orchestra
 
 ### 7:30PM	FIRST PART OF THE PROGRAM
+
 Welcome by O. Loera, Master of Ceremonies;
 Espejito Compañero (a song about lost love) sung by a group of girls;
 Tres Copitas (a traditional song) sung by the child Lupita Sosa;
