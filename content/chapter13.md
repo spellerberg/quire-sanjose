@@ -592,8 +592,9 @@ Pages 16 to 19 are dated November 24, 1957 and list 90 names of persons baptized
 
 Other entries are November 27, 1960 (90 boys and 103 girls); April 21, 1963 (77 boys and 78 girls) and May 3, 1966 (104 boys and 126 girls). Joseph Houser, C.S.C., signed the first two entries.
 
-#### Vol. 2, April 25, 1972 – December 5, 2015, San Jose Church
+#### Vol. 2
 
+April 25, 1972 – December 5, 2015, San Jose Church
 This volume is indexed, 24 entries per page, 204 pages
 
 April 25, 1972  157 entries; May 15, 1975 116 entries; May 24, 1977 48 entries; March 8, 1978 64 entries;  March 30, 1979 87 entries; March 14, 1980 49 entries; March 20, 1981 55 entries; total 1972-1981 entries 576
@@ -604,26 +605,30 @@ April 24, 1992 53 entries; June 7, 1992 49 entries; May 5, 1993 52 entries; May 
 
 March 30, 2002 22 entries; May 23, 2002 129 entries; Sept. 11- Oct. 13, 2002 2 entries; April 19, 2003 33 entries; April 29, 2003 10 entries; May 22, 2003 76 entries; April 10, 2004 47 entries; May 29, 2004 41 entries;  March 26, 2005 40 entries; May 26, 2005 84 entries; April 15, 2006 32 entries; May 25, 2006 98 entries; April 7, 2007 RCIA 39 entries; May 31, 2007 95 entries; Marcy 22, 2008 RCIA 39 entries; June 7, 2008 40 entries; April 11, 2009 42 entries; June 4, 2009 59 entries; April 3, 2010 RCIA 51 entries; May 6, 2010 1 entry; June 2, 2010 91 entries; April 23, 2011 RCIA 34 entries; May 24, 2011 89 entries; April 7, 2012 9 entries; May 22, 2012 22 entries; May 22, 2012 87 entries; March 30, 2013 10 entries; Aug. 29, 2013 RCIA 34 entries; Aug. 29, 2013 Religious Education 85 entries; Jan. 4, 2014 RCIA 12 entries; April 19, 2014 RCIA 12 entries; May 20, 2014 RCIA 22 entries; May 20, 2014 Religious Education 101 entries; Dec. 13, 2014 24 entries; April 4, 2015 8 entries; May 19, 2015 RCIA 16 entries; May 19, 2015 RE 82 entries; Dec. 5, 2015 28 entries; total 2002-2015 entries 1,746
 
-#### Vol. 3, Confirmation, dates from after December 5, 2015
+#### Vol. 3
+
+Confirmation, dates from after December 5, 2015
 
 ## Marriage Register
 
-### Marriage Register, Vol. 1, 09/03/1939- 06/17/1978
+### Marriage Register, Vol. 1
 
-Note: A margin note says the parish began August 1939.
+09/03/1939- 06/17/1978
 
 San Jose, Austin; San Francisco, Colton; Santa Cruz, Buda; Guadalupe, Garfield (seeGuadalupe in Austin or St. Edward’s University for previous records); La Luz,
-Montopolis
+Montopolis, Note: A margin note says the parish began August 1939.
 
 Alphabetical index by husband’s last name, entries in chronological order
 10 names per page, 100 pages, 1,000 entries
 
-### Marriage Register Vol. 2, June 24, 1978- June 2, 2006
+### Marriage Register Vol. 2
 
+June 24, 1978- June 2, 2006
 San Jose, Austin, 10 names per page, 104 pages, 961 entries
 
-### Marriage Register, Vol. 3, June 16, 2006 – June 16, 2018
+### Marriage Register, Vol. 3
 
+June 16, 2006 – June 16, 2018
 San Jose, Austin, 10 names per page, 45 pages, 450 entries
 
 ## Baptism Register
@@ -632,59 +637,73 @@ San Jose, Austin, 10 names per page, 45 pages, 450 entries
 
 Volume 1 is the Combined Register, it was transcribed to Vol. 2.
 
-### Baptism Register Vol. 2, 05/21/1939- 08/17/1952
+### Baptism Register Vol. 2
+
+05/21/1939- 08/17/1952
 San Jose, Guadalupe, San Francisco,(Buda, Elroy, Del Valle, Manchaca,
  Bluff Springs, Creedmore and La Luz are missing)
 
 Alphabetical index by husband’s last name, entries in chronological order
 10 names per page, 200 pages, 1,910 entries
 
-### Baptism Register Vol. 3, 08/17/1952- 05/10/1964
+### Baptism Register Vol. 3
 
+08/17/1952- 05/10/1964
 10 names per page, 204 pages, 1922 entries
 
-### Baptism Register Vol. 4, 05/10/1964- 12/31/1969
+### Baptism Register Vol. 4
 
+05/10/1964- 12/31/1969
 10 names per page, 96 pages, 954 entries
 
-### Baptism Register, Vol. 5, 01/01/1970- 10/27/1974
+### Baptism Register, Vol. 5
 
+01/01/1970- 10/27/1974
 10 names per page,101 pages, 1024 entries
 
-### Baptism Register, Vol. 6, 11/10/1974- 07/26/1981
+### Baptism Register, Vol. 6
 
+11/10/1974- 07/26/1981
 10 names per page, 103 pages, 1028 entries
 
-### Baptism Register, Vol. 7, 08/09/1981- 07/30/1989
+### Baptism Register, Vol. 7
 
+08/09/1981- 07/30/1989
 10 names per page, 104 pages, 1193 entries
 
-### Baptism Register, Vol. 8, 08/20/1989- 08/29/1993
+### Baptism Register, Vol. 8
 
+08/20/1989- 08/29/1993
 10 names per page, 104 pages, 1036 entries
 
-### Baptism Register, Vol. 9, 08/29/1993-06/29/1997
+### Baptism Register, Vol. 9
 
+08/29/1993-06/29/1997
 10 names per page, 104 pages, 984 entries
 
-### Baptism Register, Vol. 10, 06/08/1997- 03/28/2004
+### Baptism Register, Vol. 10
 
+06/08/1997- 03/28/2004
 10 names per page, 205 pages, 2057 entries
 
-### Baptism Register, Vol. 11, 04/10/2004- 09/28/2006
+### Baptism Register, Vol. 11
 
+04/10/2004- 09/28/2006
 10 names per page, 104 pages, 1040 entries
 
-### Baptism Register, Vol. 12, 09/30/2006- 12/18/2010
+### Baptism Register, Vol. 12
 
+09/30/2006- 12/18/2010
 10 names per page, 203 pages, 2029 entries
 
-### Baptism Register, Vol. 13, 12/18/2010- 07/25/2016
+### Baptism Register, Vol. 13
 
+12/18/2010- 07/25/2016
 10 names per page, 201 pages, 2049 entries
 
-### Baptism Register, Vol. 14, 07/02/2016- April 29, 2018
+### Baptism Register, Vol. 14
 
+07/02/2016- April 29, 2018
 10 names per page, 36 pages, 360 entries as of June 18, 2018
 
 ## First Communion
@@ -697,8 +716,9 @@ Contents: First Communions, San Jose and Mission, March 9, 1941
 
 Pages 55 to 64, 124 entries dated March 9, 1941; May 20, 1945 (administered by Thomas Culhane); May 25, 1947; June 1, 1947; August 3, 1947; August 15, 1948; May 1948 and May 1948
 
-### First Communion Register, Vol. 1, 1949-1967
+### First Communion Register, Vol. 1
 
+1949-1967
 Vol. 1 is missing but a photocopy exists in the church archives. The first 15 pages are missing.
 
 January 2, 1951	San Francisco		15 entries;
@@ -779,8 +799,9 @@ May 9, 1968		San Jose	28 total
 May 12, 1968		San Jose	28 total		
 1968 total 56
 
-### First Communion, Vol. 2, 1968-1983
+### First Communion, Vol. 2
 
+1968-1983
 Alphabetical index by last name, entries in chronological order,20 per page, 101 pages, all San Jose
 
 1969 176 entries, 1970 99 entries, 1971 128 entries, 1972 185 entries, 1973 164 entries,
@@ -789,21 +810,24 @@ Alphabetical index by last name, entries in chronological order,20 per page, 101
 
 1979 50 entries, 1980 53 entries, 1981 70 entries, 1982 107 entries, 1983 140 entries
 
-### First Communion, Vol. 3, 1984-1995
+### First Communion, Vol. 3
 
+1984-1995
 Alphabetical index by last name, entries in chronological order, all San Jose
 
 1984 no entries or combined with 1985, 1985 183 entries, 1986 145 entries, 1987 149 entries, 1988 180 entries, 1989 154 entries, 1990 135 entries, 1991 172 entries, 1992 185 entries, 1993 215 entries, 1994 287 entries, 1995 182 entries
 Note: Easter 1993, Fr. Kirby Garner became the pastor
 
-### First Communion, Vol. 4, May 7, 1995- May 10, 2003
+### First Communion, Vol. 4
 
+May 7, 1995- May 10, 2003
 Alphabetical index by last name, entries in chronological order, all San Jose
 
 1995 (included in 1995 Vol. 3), 1996 205 entries, 1997 206 entries, 1998 123 entries, 1999 367 entries, 2000 304 entries, 2001 284 entries, 2002 210 entries, May 10, 2003 152 entries
 
-### First Communion, Vol. 5, May 17, 2003- May 8, 2010
+### First Communion, Vol. 5
 
+May 17, 2003- May 8, 2010
 Alphabetical index by last name, entries in chronological order, all San Jose
 
 2003, May 17 96 entries; May 22 34 entries; total 130 entries
@@ -822,8 +846,9 @@ Alphabetical index by last name, entries in chronological order, all San Jose
 
 2010, April 3 RCIA 36 entries; May 1 116 entries; May 8 41 entries; 193 entries
 
-### First Communion, Vol. 6, May 8, 2010- Nov. 20, 2016
+### First Communion, Vol. 6
 
+May 8, 2010- Nov. 20, 2016
 This volume is stamped Parochial Visitation Visum est Feb. 17, 2016 and name of Dean (illegible)
 
 2010, May 8 111 entries; May 15 126 entries; other 3 entries; total 240 entries for 2010;
@@ -840,8 +865,9 @@ Feb. 14, 2015 1 entry; April 4, 2015 47 entries; May 16 & 30, 2015 150 entries; 
 
 March 26, 2016 RCIA 14 entries; May 7, 2016 64 entries; May 14, 2016 59 entries; May 21, 2016 80 entries; Nov. 12 & 20, 2016 2 entries; total entries for 2016 219
 
-### First Communion, Vol. 7, April 15, 2017- June 2, 2018
+### First Communion, Vol. 7
 
+April 15, 2017- June 2, 2018
 April 1, 2017 Adults 6 entries; April 15, 2017 RCIA 15 entries; Spanish Ceremony May 27, 2017 51 entries;
 
 June 3, 2017 18 entries; June 4, 2017 81 entries; Nov. 18, 2017 RCIA 5 entries; total entries for 2017 176;
