@@ -33,364 +33,364 @@ The following is a list of the advertisers on the date noted. The list is of tho
 
 #### 1979, April 1
 
-Town Lake Florist, 2609 E. 1st Street, Dina and Henrietta Juarez
-Angel Funeral Home, 56 E. Avenue
-Valmon Jewelers, 531 W. Oltorf
-Brock’s Café, 529 W. Oltorf, Sonny Garcia
-Flamingo Ballroom, 8619 Lockhart Hwy., Lawrence Salas
-Unique Flowers & Gifts, 609-B Stassney Lane
-Hair Designers, 2314 S. Lamar
-Al’s Formal Wear, 1818 W. Ben White
-World Library Publications, Inc., Chicago, Ill.
-Garcia Press Printing Company, 601 W. Oltorf
-Robin’s Party & Bridal Shop, 2149 S. Lamar Blvd.
-La Reyna Bakery, W. Mary at S. First
-Bettis Television & Appliances, 4313 Manchaca Road
-El Sombrero Bakery, 3116 S. Congress
-Matt’s El Rancho Restaurants, 303 E. 1st Street and 311 E. 1st Street
-Golden Slipper Boot and Shoe Repair, 1903 S. 1st, Mr. and Mrs. Alek A. Hernandez
-Girling Home Health
-Pete Espinoza & Sons Upholstery, 519 E. 6th Street
-Mission Funeral Home, 1615 E. 1st Street
-Barba Plumbing & Supply, 2210 South 1st
-Carter’s Automatic Transmission Co., 1300 S. congress
-All City Sewing Machine Service, 1510 B. S. Congress
-Chuck Spradling Realtor, 5517 Manchaca Rd.
-Barton Heights Nursing Home, 1606 Nash
-Christian Education Supply Co., 2310 S. Lamar
-H. A. Guerrero, 2313 S. 1st Street, Hank Guerrero
-El Gallo Restaurant, Congress
-J. S. Paluch Company, Inc., Chicago, Ill.
-Mrs. Johnson’s Bakery, 616 E. Oltorf
-W. J. B. TV Service, 607 Stassney Lane, Walter Bishop
-Austin House Leveling and Soil, 4808 N. IH35
-South Side Motors, 2617 S. 1st., Joe Gonzales
-Big Ben Sandwich, 1619 S. First
-Matt’s El Rancho Inc. Catering, 303 E. 1st Street
-P. J. Grocery, 915 W. Mary
-Glaser’s Religious Gifts and Books, 2825 Hancock Dr.
+Town Lake Florist, 2609 E. 1st Street, Dina and Henrietta Juarez;
+Angel Funeral Home, 56 E. Avenue;
+Valmon Jewelers, 531 W. Oltorf;
+Brock’s Café, 529 W. Oltorf, Sonny Garcia;
+Flamingo Ballroom, 8619 Lockhart Hwy., Lawrence Salas;
+Unique Flowers & Gifts, 609-B Stassney Lane;
+Hair Designers, 2314 S. Lamar;
+Al’s Formal Wear, 1818 W. Ben White;
+World Library Publications, Inc., Chicago, Ill.;
+Garcia Press Printing Company, 601 W. Oltorf;
+Robin’s Party & Bridal Shop, 2149 S. Lamar Blvd.;
+La Reyna Bakery, W. Mary at S. First;
+Bettis Television & Appliances, 4313 Manchaca Road;
+El Sombrero Bakery, 3116 S. Congress;
+Matt’s El Rancho Restaurants, 303 E. 1st Street and 311 E. 1st Street;
+Golden Slipper Boot and Shoe Repair, 1903 S. 1st, Mr. and Mrs. Alek A. Hernandez;
+Girling Home Health;
+Pete Espinoza & Sons Upholstery, 519 E. 6th Street;
+Mission Funeral Home, 1615 E. 1st Street;
+Barba Plumbing & Supply, 2210 South 1st;
+Carter’s Automatic Transmission Co., 1300 S. Congress;
+All City Sewing Machine Service, 1510 B. S. Congress;
+Chuck Spradling Realtor, 5517 Manchaca Rd.;
+Barton Heights Nursing Home, 1606 Nash;
+Christian Education Supply Co., 2310 S. Lamar;
+H. A. Guerrero, 2313 S. 1st Street, Hank Guerrero;
+El Gallo Restaurant, Congress;
+J. S. Paluch Company, Inc., Chicago, Ill.;
+Mrs. Johnson’s Bakery, 616 E. Oltorf;
+W. J. B. TV Service, 607 Stassney Lane, Walter Bishop;
+Austin House Leveling and Soil, 4808 N. IH35;
+South Side Motors, 2617 S. 1st., Joe Gonzales;
+Big Ben Sandwich, 1619 S. First;
+Matt’s El Rancho Inc. Catering, 303 E. 1st Street;
+P. J. Grocery, 915 W. Mary;
+Glaser’s Religious Gifts and Books, 2825 Hancock Dr.;
 For ads: J. S. Paluch Co., Inc., Humble, Texas
 
 #### 1981, July 5
 
-Hair Designers, 2314 S. Lamar
-El Tejano Productions, 90 E. Ave.
-Golden Slipper Shoe Repair, 1903 S. First
-Bonanza Cleaners, 5316 Manchaca Rd., Lawrence Salas Jr., Sergio Salas
-Old Mexico Bakery Inc., 2004 S. 1st Street
-Joe Prado Realtor, 3816 S. First
-Alberto Garcia Attorney at Law, 61 N. IH35
-Oscar’s Uniforms, 2710 S. Lamar Blvd.
-Angel Funeral Home, 1811 S. Congress, Jose S. S. Davila, Owner
-PJ’s Grocery, 915 West Mary
-Mama’s Kitchen, 529 W. Oltorf, Bessie Hinkle
-Washburn’s Cleaners, 1423 S. Congress
-South Side Motors, 2617 S. 1st., Joe Gonzales, Parishioner
-La Fuente’s Mexican Food, 6407 Circle S. Rd.
-Silver Express Disc Jockey, 2425 Oak Crest, Paul Gonzalez (9am-9pm 444-7587, after 9pm 441-0065) (444-7587 was the # of the Mission Group as listed in the Sunday Bulletin)
-Austin Body Works, 1310 E. 6th St., Bob Glynn
-Valmon Jewelers, 531 W. Oltorf
-Bettis TV & appliances, 4313 Manchaca Road
-David’s Food Stores, Inc., 2101 South 1st. Street and 912 W. Mary  Street
-H. A. Guerrero, 2313 S. 1st., Hank Guerrero
-La Reyna Bakery, 1816 S. 1st. Street
-Matt’s El Rancho Inc., 303 E. 1st Street
-Ruiz Management Service, 3507 S. First St.
-Tamales by Bargas, Mrs. Ruth U. Bargas
-Clarence Guerrero & Sons Home Improvements
-Mary Agnes Beauty Shop, 901 W. Mary, Mary Agnes Vasquez, Parishioner
-Davis Cleaners, 1601 S. Lamar, Joe & Mary Santos, Parishioners
-Embers Bar, 2420 S. 1st Street
-A & J Carpet Co., 1209 Speer Lane
-Gonzales Body Shop, 4215 Felter Lane, Manuel Gonzales, Owner
-Big Ben Sandwiches, 1619 S. 1st., Ben & Emma Arizmendez, Parishioners
+Hair Designers, 2314 S. Lamar;
+El Tejano Productions, 90 E. Ave.;
+Golden Slipper Shoe Repair, 1903 S. First;
+Bonanza Cleaners, 5316 Manchaca Rd., Lawrence Salas Jr., Sergio Salas;
+Old Mexico Bakery Inc., 2004 S. 1st Street;
+Joe Prado Realtor, 3816 S. First;
+Alberto Garcia Attorney at Law, 61 N. IH35;
+Oscar’s Uniforms, 2710 S. Lamar Blvd.;
+Angel Funeral Home, 1811 S. Congress, Jose S. S. Davila, Owner;
+PJ’s Grocery, 915 West Mary;
+Mama’s Kitchen, 529 W. Oltorf, Bessie Hinkle;
+Washburn’s Cleaners, 1423 S. Congress;
+South Side Motors, 2617 S. 1st., Joe Gonzales, Parishioner;
+La Fuente’s Mexican Food, 6407 Circle S. Rd.;
+Silver Express Disc Jockey, 2425 Oak Crest, Paul Gonzalez (9AM-9PM 444-7587, after 9PM 441-0065);
+Austin Body Works, 1310 E. 6th St., Bob Glynn;
+Valmon Jewelers, 531 W. Oltorf;
+Bettis TV & appliances, 4313 Manchaca Road;
+David’s Food Stores, Inc., 2101 South 1st. Street and 912 W. Mary Street;
+H. A. Guerrero, 2313 S. 1st., Hank Guerrero;
+La Reyna Bakery, 1816 S. 1st. Street;
+Matt’s El Rancho Inc., 303 E. 1st Street;
+Ruiz Management Service, 3507 S. First St.;
+Tamales by Bargas, Mrs. Ruth U. Bargas;
+Clarence Guerrero & Sons Home Improvements;
+Mary Agnes Beauty Shop, 901 W. Mary, Mary Agnes Vasquez, Parishioner;
+Davis Cleaners, 1601 S. Lamar, Joe & Mary Santos, Parishioners;
+Embers Bar, 2420 S. 1st Street;
+A & J Carpet Co., 1209 Speer Lane;
+Gonzales Body Shop, 4215 Felter Lane, Manuel Gonzales, Owner;
+Big Ben Sandwiches, 1619 S. 1st., Ben & Emma Arizmendez, Parishioners;
 Castro Cleaners, 1905 S. 1st., Lou Castro, Owner
 
 #### 1982, July 4
 
-Hair Designers, 2314 S. Lamar, Parishioners
-Mission Funeral Home, 1615 E. 1st Street
-Little John’s Hamburgers & Mexican Food, 2300 S. 1st., J. B. Aguilar
-Sharp’s Locksmith, 507 W. Mary, Norman & Geneva Sharp
-Bonanza Cleaners, 5316 Manchaca Rd., Lawrence Salas Jr., Sergio Salas
-Old Mexico Bakery Inc., 2004 S. 1st Street
-Joe Prado Realtor, 3816 S. First Street
-Alberto Garcia Attorney at Law, 61 N. IH35
-Oscar’s Uniforms, 2710 S. Lamar Blvd.
-Robert’s Pool Hall, 2712 S. Lamar
-Dr. F. Javier Guerra Family Physician
-PJ’s Grocery, 915 West Mary
-Mama’s Kitchen, 529 W. Oltorf, Bessie Hinkle
-Lawn & Garden Services, Juan Carlos Reyna, Ruby Roa
-Golden Slipper Shoe Repair, 1903 S. 1st., Mr. & Mrs. Aleck Hernandez, parishioners
-La Fuente’s Mexican Food, 6407 Circle S. Road
-Silver Express Disc Jockey, 2425 Oak Crest, Paul Gonzalez (9am-9pm 444-7587, after 9pm 441-0065) (444-7587 was the telephone number of the Mission Group as listed in the Sunday Bulletin)
-Austin Body Works, 1310 E. 6th St., Bob Glynn
-Valmon Jewelers, 531 W. Oltorf
-Bettis TV & appliances, 4313 Manchaca Rd.
-Versalles Body Shop, 2008 S. First, Jose Luis Versalles
-June’s Terrace Beauty Salon, 505 W. Mary, June Clark
-Dr. Cesar Jimenez, General Surgeon
-H. A. Guerrero, 2313 S. 1st., Hank Guerrero
-La Reyna Bakery, 1816 S. 1st Street
-Matt’s El Rancho Inc., 303 E. 1st Street
-Ruiz Management Service, 3507 S. First St.
-Tamales by Bargas, Mrs. Ruth U. Bargas
-A & J Carpet & Janitorial Service, 5701 S. Congress
-Clarence guerrero & Sons Home Improvements
-Mary Agnes Beauty Shop, 901 W. Mary, Mary Agnes Vasquez, Parishioner
-El Tejano Productions, 90 E. Ave.
-Capitol Tailors, 1903 A 1st. St., Mary Lou Ledesma
-Friendly Television Service, 507A W. Mary,  Emilio Cavazos, Parishioner
-Eddie’s Optical, 1801 S. 1st Street
-Cantu’s Maintenance Man, John J. Cantu, Parishioner
-Big Ben Sandwiches, 1619 S. 1st., Ben & Emma Arizmendez, parishioners
-Castro Cleaners, 1905 S. 1st., Lou Castro
-JiPoDe Amusement World, 533 W. Oltorf
+Hair Designers, 2314 S. Lamar, Parishioners;
+Mission Funeral Home, 1615 E. 1st Street;
+Little John’s Hamburgers & Mexican Food, 2300 S. 1st., J. B. Aguilar;
+Sharp’s Locksmith, 507 W. Mary, Norman & Geneva Sharp;
+Bonanza Cleaners, 5316 Manchaca Rd., Lawrence Salas Jr., Sergio Salas;
+Old Mexico Bakery Inc., 2004 S. 1st Street;
+Joe Prado Realtor, 3816 S. First Street;
+Alberto Garcia Attorney at Law, 61 N. IH35;
+Oscar’s Uniforms, 2710 S. Lamar Blvd.;
+Robert’s Pool Hall, 2712 S. Lamar;
+Dr. F. Javier Guerra Family Physician;
+PJ’s Grocery, 915 West Mary;
+Mama’s Kitchen, 529 W. Oltorf, Bessie Hinkle;
+Lawn & Garden Services, Juan Carlos Reyna, Ruby Roa;
+Golden Slipper Shoe Repair, 1903 S. 1st., Mr. & Mrs. Aleck Hernandez, parishioners;
+La Fuente’s Mexican Food, 6407 Circle S. Road;
+Silver Express Disc Jockey, 2425 Oak Crest, Paul Gonzalez (9AM-9PM 444-7587, after 9PM 441-0065);
+Austin Body Works, 1310 E. 6th St., Bob Glynn;
+Valmon Jewelers, 531 W. Oltorf;
+Bettis TV & appliances, 4313 Manchaca Rd.;
+Versalles Body Shop, 2008 S. First, Jose Luis Versalles;
+June’s Terrace Beauty Salon, 505 W. Mary, June Clark;
+Dr. Cesar Jimenez, General Surgeon;
+H. A. Guerrero, 2313 S. 1st., Hank Guerrero;
+La Reyna Bakery, 1816 S. 1st Street;
+Matt’s El Rancho Inc., 303 E. 1st Street;
+Ruiz Management Service, 3507 S. First St.;
+Tamales by Bargas, Mrs. Ruth U. Bargas;
+A & J Carpet & Janitorial Service, 5701 S. Congress;
+Clarence guerrero & Sons Home Improvements;
+Mary Agnes Beauty Shop, 901 W. Mary, Mary Agnes Vasquez, Parishioner;
+El Tejano Productions, 90 E. Ave.;
+Capitol Tailors, 1903 A 1st. St., Mary Lou Ledesma;
+Friendly Television Service, 507A W. Mary,  Emilio Cavazos, Parishioner;
+Eddie’s Optical, 1801 S. 1st Street;
+Cantu’s Maintenance Man, John J. Cantu, Parishioner;
+Big Ben Sandwiches, 1619 S. 1st., Ben & Emma Arizmendez, parishioners;
+Castro Cleaners, 1905 S. 1st., Lou Castro;
+JiPoDe Amusement World, 533 W. Oltorf;
 Mario’s Lawnmower Repair, 3310 S. 2nd Street
 
 #### 1983, July 3
 
-Hair Designers, 2314 S. Lamar, Parishioners
-Mission Funeral Home, 1615 E. 1st Street
-Friendly Television Service, 903. W. Johanna, Emilio Cavazos, Parishioner
-Fabila Paint Body Shop, 2617 S. First, Will Fabila, Parishioner
-Cantu’s Maintenance Man, John J. Cantu
-Old Mexico Bakery Inc., 2004 South 1st Street
-Joe Prado Real Estate Broker, 3816 S. 1st Street
-Alberto Garcia Attorney at Law, 61 N. IH35
-Oscar’s Uniforms, 2710 S. Lamar Blvd.
-Robert’s Pool Hall, 2712 S. Lamar Blvd.
-Golden Slipper Shoe Repair, 1903 S. 1st, Mr. & Mrs. Aleck Hernandez, Parishioners
-PJ’s Grocery, 915A W. Mary Street
-Perma Green Lawn Care, 5613 Adams
-Mama’s Kitchen, 529 W. Oltorf, Bessie Hinkle
-Silver Express Disc Jocket, Paul Gonzalez, 2425 Oak Crest Ave.
-Ruiz Management Service, 3507 S. First Street
-Angel Funeral Home, 1181 S. Congress, Jose S.S. Davila, Director
-June’s Terrance Beauty Salon, 505 W. Mary, June Clark
-Bettis Television & Appliances, 4313 Manchaca Road
-Matt’s El Rancho Inc., 303 E. 1st Street
-Dr. Cesar Jimenez General Surgeon, 1715 S. 1st Street
-Austin Body Works, 1310 E. 6th Street, Bob Glynn
-La Reyna Bakery, 1816 S. 1st Street
-Adolf Davila Farmers Insurance Group, 3816 S 1st Street, Suite 205
-A & J Carpet Sales & Janitorial Service, 5701 S. Congress Ave., Alfred Ortiz
-Clarence Guerrero & Sons Home Improvements
-Tamales by Bargas, Mrs. Ruth U. Bargas
-Thomas Esparza Jr. Attorney at Law
-Capitol Tailors, 507A West Mary, Mary Lou Ledesma
-Mary Agnes Beauty Shop, 901 W. Mary, Mary Agnes Vasquez, Parishioner
-La Fuente’s Mexican Food, 6407 Circle S. Rd
-Valmon Jewelers, 531 W. Oltorf
-Castro Cleaners, 1905 S. 1st Street, Lou Castro
+Hair Designers, 2314 S. Lamar, Parishioners;
+Mission Funeral Home, 1615 E. 1st Street;
+Friendly Television Service, 903. W. Johanna, Emilio Cavazos, Parishioner;
+Fabila Paint Body Shop, 2617 S. First, Will Fabila, Parishioner;
+Cantu’s Maintenance Man, John J. Cantu;
+Old Mexico Bakery Inc., 2004 South 1st Street;
+Joe Prado Real Estate Broker, 3816 S. 1st Street;
+Alberto Garcia Attorney at Law, 61 N. IH35;
+Oscar’s Uniforms, 2710 S. Lamar Blvd.;
+Robert’s Pool Hall, 2712 S. Lamar Blvd.;
+Golden Slipper Shoe Repair, 1903 S. 1st, Mr. & Mrs. Aleck Hernandez, Parishioners;
+PJ’s Grocery, 915A W. Mary Street;
+Perma Green Lawn Care, 5613 Adams;
+Mama’s Kitchen, 529 W. Oltorf, Bessie Hinkle;
+Silver Express Disc Jocke, Paul Gonzalez, 2425 Oak Crest Ave.;
+Ruiz Management Service, 3507 S. First Street;
+Angel Funeral Home, 1181 S. Congress, Jose S.S. Davila, Director;
+June’s Terrance Beauty Salon, 505 W. Mary, June Clark;
+Bettis Television & Appliances, 4313 Manchaca Road;
+Matt’s El Rancho Inc., 303 E. 1st Street;
+Dr. Cesar Jimenez General Surgeon, 1715 S. 1st Street;
+Austin Body Works, 1310 E. 6th Street, Bob Glynn;
+La Reyna Bakery, 1816 S. 1st Street;
+Adolf Davila Farmers Insurance Group, 3816 S 1st Street, Suite 205;
+A & J Carpet Sales & Janitorial Service, 5701 S. Congress Ave., Alfred Ortiz;
+Clarence Guerrero & Sons Home Improvements;
+Tamales by Bargas, Mrs. Ruth U. Bargas;
+Thomas Esparza Jr. Attorney at Law;
+Capitol Tailors, 507A West Mary, Mary Lou Ledesma;
+Mary Agnes Beauty Shop, 901 W. Mary, Mary Agnes Vasquez, Parishioner;
+La Fuente’s Mexican Food, 6407 Circle S. Rd.;
+Valmon Jewelers, 531 W. Oltorf;
+Castro Cleaners, 1905 S. 1st Street, Lou Castro;
 New & Used Car Sales, 5701 N. I35, Fred C. Martinez, Parishioner
-Austin Minor Emergency Clinci, 1701 E. 7th Street, Dr. Enrique Martinez, Director
+Austin Minor Emergency Clinci, 1701 E. 7th Street, Dr. Enrique Martinez, Director;
 North Austin Boat Repair, 2506 Ferguson
 
 #### 1984, July 1
 
-Hair Designers, 2314 S. Lamar, Parishioners
-Gabriel Gutierrez Jr. Attorney at Law, 61 N. IH35
-World Book/Childcraft, Mr. Frank E. Campos
-Friendly Television Service, 903. W. Johanna, Emilio Cavazos, Parishioner
-Valmon Jewelers, 531 W. Oltorf
-Old Mexico Bakery Inc., 2004 South 1st Street
-Casa Blanca auto Sales, 1008 Airport, Fred Ramirez
-Greater Austin Income Tax Service, 2600 S. First, Mario Rubio
-Hair Flair by Calderon, 500 W. Oltorf, Luis & Dolores Calderon
-Mary Agnes Beauty Shop, 901 W. Mary, Mary Agnes Vasquez, Parishioner
-Eddie’s Optical, 1801 S. 1st Street
-A. Santos Insurance Agency, 2600 S. First Street
-North Austin Boat Repair, 2506 Ferguson
-Golden Slipper Shoe Repair, 1903 S. 1st, Mr. & Mrs. Aleck Hernandez, Parishioners
-Robert’s Pool Hall, 2712 S. Lamar
-Oscar’s Uniforms, 2710 S. Lamar
-Mama’s Kitchen, 529 W. Oltorf, Bessie Hinkle
-Matt’s El Rancho Inc., 303 E. 1st Street
-Mission Funeral Home, 1615 E. 1st Street
-Bettis Television & Appliances, 4313 Manchaca Road
-June’s Terrance Beauty Salon, 505 W. Mary, June Clark
-Angel Funeral Home, 1181 S. Congress, Jose S.S. Davila, Samuel J. De Leon
-Joe Prado Real Estate Broker, 3816 S. 1st Street
-L & F appliance, 6012A Manor
-Adolf Davila Farmers Insurance Group, 3816 S 1st Street, Suite 205
-Thomas Esparza Jr. Attorney at Law
-Austin Body Works, 1310 E. 6th St., Bob Glynn
-Dr. Cesar Jimenez General Surgeon, 1715 S. 1st Street
-La Reyna Bakery, 1816 S. 1st Street
-Tamales by Bargas, Mrs. Ruth U. Bargas
-Clarence Guerrero & Sons Home Improvements
-A & J Carpet Sales & Janitorial Service, 5701 S. Congress, Alfred Ortiz
-Capitol Tailors, 507A West Mary, Mary Lou Ledesma
-PJ’s Grocery, 915A W. Mary Street
-Postal Center, 915B W. Mary Street
-Avon, Karen Alvarez
-Ruiz Management Service, 3507 S. First Street
-Austin Minor Emergency Clinic, 1701 E. 7th Street
-Don Carlos Ballroom, Round Rock, Irene Velasquez
+Hair Designers, 2314 S. Lamar, Parishioners;
+Gabriel Gutierrez Jr. Attorney at Law, 61 N. IH35;
+World Book/Childcraft, Mr. Frank E. Campos;
+Friendly Television Service, 903. W. Johanna, Emilio Cavazos, Parishioner;
+Valmon Jewelers, 531 W. Oltorf;
+Old Mexico Bakery Inc., 2004 South 1st Street;
+Casa Blanca auto Sales, 1008 Airport, Fred Ramirez;
+Greater Austin Income Tax Service, 2600 S. First, Mario Rubio;
+Hair Flair by Calderon, 500 W. Oltorf, Luis & Dolores Calderon;
+Mary Agnes Beauty Shop, 901 W. Mary, Mary Agnes Vasquez, Parishioner;
+Eddie’s Optical, 1801 S. 1st Street;
+A. Santos Insurance Agency, 2600 S. First Street;
+North Austin Boat Repair, 2506 Ferguson;
+Golden Slipper Shoe Repair, 1903 S. 1st, Mr. & Mrs. Aleck Hernandez, Parishioners;
+Robert’s Pool Hall, 2712 S. Lamar;
+Oscar’s Uniforms, 2710 S. Lamar;
+Mama’s Kitchen, 529 W. Oltorf, Bessie Hinkle;
+Matt’s El Rancho Inc., 303 E. 1st Street;
+Mission Funeral Home, 1615 E. 1st Street;
+Bettis Television & Appliances, 4313 Manchaca Road;
+June’s Terrance Beauty Salon, 505 W. Mary, June Clark;
+Angel Funeral Home, 1181 S. Congress, Jose S.S. Davila, Samuel J. De Leon;
+Joe Prado Real Estate Broker, 3816 S. 1st Street;
+L & F appliance, 6012A Manor;
+Adolf Davila Farmers Insurance Group, 3816 S 1st Street, Suite 205;
+Thomas Esparza Jr. Attorney at Law;
+Austin Body Works, 1310 E. 6th St., Bob Glynn;
+Dr. Cesar Jimenez General Surgeon, 1715 S. 1st Street;
+La Reyna Bakery, 1816 S. 1st Street;
+Tamales by Bargas, Mrs. Ruth U. Bargas;
+Clarence Guerrero & Sons Home Improvements;
+A & J Carpet Sales & Janitorial Service, 5701 S. Congress, Alfred Ortiz;
+Capitol Tailors, 507A West Mary, Mary Lou Ledesma;
+PJ’s Grocery, 915A W. Mary Street;
+Postal Center, 915B W. Mary Street;
+Avon, Karen Alvarez;
+Ruiz Management Service, 3507 S. First Street;
+Austin Minor Emergency Clinic, 1701 E. 7th Street;
+Don Carlos Ballroom, Round Rock, Irene Velasquez;
 Alberto Garcia Attorney at Law, 61 N. IH35
 
 #### 1985, Feb. 17
 
-Hair Designers, 2314 S. Lamar, Parishioners
-Gabriel Gutierrez Jr. Attorney at Law, 61 N. IH35
-World Book/Childcraft, Mr. Frank E. Campos
-Friendly Television Service, 903 W. Johanna, Emilio Cavazos, Parishioner
-Valmon Jewelers, 531 W. Oltorf
-Old Mexico Bakery Inc., 2004 South 1st Street
-Casa Blanca auto Sales, 1008 Airport, Fred Ramirez
-Greater Austin Income Tax Service, 2600 S. First, Mario Rubio
-Hair Flair by Calderon, 500 W. Oltorf, Luis & Dolores Calderon
-Mary Agnes Beauty Shop, 901 W. Mary, Mary Agnes Vasquez, Parishioner
-Eddie’s Optical, 1801 S. 1st Street
-A. Santos Insurance Agency, 2600 S. First Street
-North Austin Boat Repair, 2506 Ferguson
-Golden Slipper Shoe Repair, 1903 S. 1st, Mr. & Mrs. Aleck Hernandez, Parishioners
-Tero Christening Robes, 6909 Tulane Drive, Donato & Teresita Rodriguez
-Robert’s Pool Hall, 2712 S. Lamar
-Oscar’s Uniforms, 2710 S. Lamar
-Mama’s Kitchen, 529 W. Oltorf, Bessie Hinkle
-Matt’s El Rancho Inc., 303 E. 1st Street
-Mission Funeral Home, 1615 E. 1st Street
-Bettis Television & Appliances, 4313 Manchaca Rd.
-June’s Terrance Beauty Salon, 505 W. Mary, June Clark
-PJ’s Grocery, 915A W. Mary Street
-Postal Center, 915B W. Mary Street
-Avon, Karen Alvarez
-Joe Prado Real Estate Broker, 3816 S. 1st Street
-L & F appliance, 6012A Manor
-Adolf Davila Farmers Insurance Group, 3816 S 1st Street, Suite 205
-Thomas Esparza Jr. Attorney at Law
-Austin Body Works, 1310 E. 6th St., Bob Glynn
-La Reyna Bakery, 1816 S. 1st Street
-Tamales by Bargas, Mrs. Ruth U. Bargas
-Clarence Guerrero & Sons Home Improvements
-A & J Carpet Sales & Janitorial Service, 5701 S. Congress, Alfred Ortiz
-Capitol Tailors, 507A West Mary, Mary Lou Ledesma
-Angel Funeral Home, 1181 S. Congress, Jose S.S. Davila, Samuel J. De Leon
-Ruiz Management Service, 3507 S. First St.
-Don Carlos Ballroom, Round Rock, Irene Velasquez
-Alberto Garcia Attorney at Law, 61 N. IH35
-Flowers by Mary
+Hair Designers, 2314 S. Lamar, Parishioners;
+Gabriel Gutierrez Jr. Attorney at Law, 61 N. IH35;
+World Book/Childcraft, Mr. Frank E. Campos;
+Friendly Television Service, 903 W. Johanna, Emilio Cavazos, Parishioner;
+Valmon Jewelers, 531 W. Oltorf;
+Old Mexico Bakery Inc., 2004 South 1st Street;
+Casa Blanca auto Sales, 1008 Airport, Fred Ramirez;
+Greater Austin Income Tax Service, 2600 S. First, Mario Rubio;
+Hair Flair by Calderon, 500 W. Oltorf, Luis & Dolores Calderon;
+Mary Agnes Beauty Shop, 901 W. Mary, Mary Agnes Vasquez, Parishioner;
+Eddie’s Optical, 1801 S. 1st Street;
+A. Santos Insurance Agency, 2600 S. First Street;
+North Austin Boat Repair, 2506 Ferguson;
+Golden Slipper Shoe Repair, 1903 S. 1st, Mr. & Mrs. Aleck Hernandez, Parishioners;
+Tero Christening Robes, 6909 Tulane Drive, Donato & Teresita Rodriguez;
+Robert’s Pool Hall, 2712 S. Lamar;
+Oscar’s Uniforms, 2710 S. Lamar;
+Mama’s Kitchen, 529 W. Oltorf, Bessie Hinkle;
+Matt’s El Rancho Inc., 303 E. 1st Street;
+Mission Funeral Home, 1615 E. 1st Street;
+Bettis Television & Appliances, 4313 Manchaca Rd.;
+June’s Terrance Beauty Salon, 505 W. Mary, June Clark;
+PJ’s Grocery, 915A W. Mary Street;
+Postal Center, 915B W. Mary Street;
+Avon, Karen Alvarez;
+Joe Prado Real Estate Broker, 3816 S. 1st Street;
+L & F appliance, 6012A Manor;
+Adolf Davila Farmers Insurance Group, 3816 S 1st Street, Suite 205;
+Thomas Esparza Jr. Attorney at Law;
+Austin Body Works, 1310 E. 6th St., Bob Glynn;
+La Reyna Bakery, 1816 S. 1st Street;
+Tamales by Bargas, Mrs. Ruth U. Bargas;
+Clarence Guerrero & Sons Home Improvements;
+A & J Carpet Sales & Janitorial Service, 5701 S. Congress, Alfred Ortiz;
+Capitol Tailors, 507A West Mary, Mary Lou Ledesma;
+Angel Funeral Home, 1181 S. Congress, Jose S.S. Davila, Samuel J. De Leon;
+Ruiz Management Service, 3507 S. First St.;
+Don Carlos Ballroom, Round Rock, Irene Velasquez;
+Alberto Garcia Attorney at Law, 61 N. IH35;
+Flowers by Mary;
 Ralph’s AC & Appliance Service, 2501 Montopolis Dr., Ralph D. Rivera
 
 #### 1985, June 30
 
-Tamales by Bargas, 2448 S. 1st., Mrs. Ruth U. Bargas
-Angel Funeral Home, 1181 S. Congress
-Tero Christening Robes, 6909 Tulane Drive, Donato & Teresita Rodriguez
-Ralph’s AC & Appliance Service, 2501 Montopolis Dr., Ralph D. Rivera
-Mary Agnes Beauty Shop, 901 W. Mary, Mary Agnes Vasquez, Parishioner
-Clarence Guerrero & Sons Home Improvements
-River City Glass & Mirror, 2004 Oxford, Augie Davila, Robert Chaney
-A & J Carpet Sales & Janitorial Service, 5701 S. Congress, Alfred Ortiz
-Alberto Garcia Attorney at Law, 61 N. IH35
-Panaderia Dos Hermanos, 2730 E. 1st., 503 W. Oltof
-Joe Prado Real Estate Broker, 3816 S. 1st Street
-Emmaus Catholic Books & Gifts Co., 154 Hancock Center
-Sammy Ruiz, Lawn Mover Repair, 1304 Boulden Ave.
-Metropolitan Insurance, 1524 S. IH35, Jerry L. Ybarra
-Marines Bakery, Rosa & Bennie Marines, Parishioners
-Republic Bank South Austin, Congress at Oltorf
-Capitol Tailors, 507A West Mary, Mary Lou Ledesma
-Transmission Specialists, 700 W. Jewell, Juan Flores
-Gabriel Gutierrez Jr. Attorney at Law, 61 N. IH35
-Matt’s El Rancho Inc., 303 E. 1st Street
-June’s Terrance Beauty Salon, 505 W. Mary, June Clark
-PJ’s Grocery, 915A W. Mary Street
-Postal Center, 915B W, Mary Street
-Valmon Jewelers, 531 W. Oltorf
-Old Mexico Bakery Inc., 507A W. Mary
-Elisa Garcia Realty, 515 Havana
-Thomas Esparza Jr. Attorney at Law
-Mama’s Kitchen, 529 W. Oltorf, Bessie Hinkle
-Ruiz Management Service, 3507 S. First St.
-Greater Austin Income Tax Service, 2600 S. First, Mario Rubio
-Hair Flair by Calderon, 500 W. Oltorf, Luis & Dolores Calderon
-Golden Slipper Shoe Repair, 1903 S. 1st, Mr. & Mrs. Aleck Hernandez, Parishioners
-Hair Designers, 2314 S. Lamar Blvd., Parishioners
-Robert’s Pool Hall, 2712 S. Lamar Blvd.
-Oscar’s Uniforms, 2710 S. Lamar Blvd.
-Mission Funeral Home, 1615 E. 1st.
-Bettis Television & Appliances, 4313 Manchaca Rd.
-Flamingo Ballroom, Hwy. 183 South, Lockhart
-La Reyna, 1816 S. 1st Street
-Mission Funeral Home, 1615 East 1st.; Charles, Lois & Gilbert Villasenor, Robert Cisneros		
+Tamales by Bargas, 2448 S. 1st., Mrs. Ruth U. Bargas;
+Angel Funeral Home, 1181 S. Congress;
+Tero Christening Robes, 6909 Tulane Drive, Donato & Teresita Rodriguez;
+Ralph’s AC & Appliance Service, 2501 Montopolis Dr., Ralph D. Rivera;
+Mary Agnes Beauty Shop, 901 W. Mary, Mary Agnes Vasquez, Parishioner;
+Clarence Guerrero & Sons Home Improvements;
+River City Glass & Mirror, 2004 Oxford, Augie Davila, Robert Chaney;
+A & J Carpet Sales & Janitorial Service, 5701 S. Congress, Alfred Ortiz;
+Alberto Garcia Attorney at Law, 61 N. IH35;
+Panaderia Dos Hermanos, 2730 E. 1st., 503 W. Oltof;
+Joe Prado Real Estate Broker, 3816 S. 1st Street;
+Emmaus Catholic Books & Gifts Co., 154 Hancock Center;
+Sammy Ruiz, Lawn Mover Repair, 1304 Boulden Ave.;
+Metropolitan Insurance, 1524 S. IH35, Jerry L. Ybarra;
+Marines Bakery, Rosa & Bennie Marines, Parishioners;
+Republic Bank South Austin, Congress at Oltorf;
+Capitol Tailors, 507A West Mary, Mary Lou Ledesma;
+Transmission Specialists, 700 W. Jewell, Juan Flores;
+Gabriel Gutierrez Jr. Attorney at Law, 61 N. IH35;
+Matt’s El Rancho Inc., 303 E. 1st Street;
+June’s Terrance Beauty Salon, 505 W. Mary, June Clark;
+PJ’s Grocery, 915A W. Mary Street;
+Postal Center, 915B W, Mary Street;
+Valmon Jewelers, 531 W. Oltorf;
+Old Mexico Bakery Inc., 507A W. Mary;
+Elisa Garcia Realty, 515 Havana;
+Thomas Esparza Jr. Attorney at Law;
+Mama’s Kitchen, 529 W. Oltorf, Bessie Hinkle;
+Ruiz Management Service, 3507 S. First St.;
+Greater Austin Income Tax Service, 2600 S. First, Mario Rubio;
+Hair Flair by Calderon, 500 W. Oltorf, Luis & Dolores Calderon;
+Golden Slipper Shoe Repair, 1903 S. 1st, Mr. & Mrs. Aleck Hernandez, Parishioners;
+Hair Designers, 2314 S. Lamar Blvd., Parishioners;
+Robert’s Pool Hall, 2712 S. Lamar Blvd.;
+Oscar’s Uniforms, 2710 S. Lamar Blvd.;
+Mission Funeral Home, 1615 E. 1st.;
+Bettis Television & Appliances, 4313 Manchaca Rd.;
+Flamingo Ballroom, Hwy. 183 South, Lockhart;
+La Reyna, 1816 S. 1st Street;
+Mission Funeral Home, 1615 East 1st.; Charles, Lois & Gilbert Villasenor, Robert Cisneros;		
 Eddie’s Optical, 1801 S. 1st Street
 
 #### 1986, July 6
 
-Hair Designers, 1914 Fortview Road, Parishioners
-Oscar Garcia Painting
-Mama’s Kitchen, 329W. Oltorf, Bessie Hinkle, Owner
-Expert Alternations, Felicitas Contreras, Parishioner
-Gold Slipper Shoe Repair, 1903 South 1st, Hernandez family, Parishioners
-Tamales by Bargas, 2448 S. 1st., Mrs. Ruth U. Bargas
-PJ’s Grocery, 915A W. Mary
-Alex R. Morales Insurance, 1301 S. IH35, Suite 316
-Robert’s Pool Hall, 2712 S. Lamar Blvd.
-Eddie’s Optical, 1801 S. 1st Street
-Transmission Specialists, 700 W. Jewell, Juan Flores
-Hair Flair by Calderon, 500 W. Oltorf,Luis & Dolores Calderon
-Oscar’s Uniforms, 2710 S. Lamra, Oscar Cazares, Parishioner
-Mission Funeral Home, 1615 East 1st, Charles, Lois & Gilbert Villasenor, Robert Cisneros
-Bettis Television & Appliances, 4313 Manchaca Rd.
-Miracle Windshield Repair, 209 E. Ben White #211,Ernesto Madrigal
-Mama’s Kitchen, 529 W. Oltorf, Bessie Hinkle
-Ruiz Management Service, 3507 S. First Street
-Emmaus Catholic Books & Gifts Co., 154 Hancock Center
-Republic Bank South Austin, Congress at Oltorf
-Mary Agnes Beauty Shop, 901 W. Mary, Mary Agnes Vasquez, Parishioner
-Joe Prado Real Estate Broker, 3816 S. 1st Street
-Ralph’s AC & Appliance Service, 2501 Montopolis Dr., Ralph D. & Stella Rivera
-Valmon Jewelers, 531 W. Oltorf
-Capitol Tailors, 104 E. Oltorf, Mary Lou & Eddie Ledesma
-Catholic War Veterans, U.S.A., 4913 S. Congress
-Clarence Guerrero & Sons Home Improvements
-Complete Lawn Service, Ignacio Camario
-Gabriel Gutierrez Jr. Attorney at Law, 61 N. IH35
-Angel Funeral Home, 1181 S. Congress, the DeLeon Family
-Panaderia Dos Hermanos, 2730 E. 1st Street, 503 W. Oltof
-Matt’s El Rancho Inc., 303 E. 1st Street
-Little Caesars’ Pizza, 512 W. Stassney Lane
-Alberto Garcia Attorney at Law, 61 N. IH35
+Hair Designers, 1914 Fortview Road, Parishioners;
+Oscar Garcia Painting;
+Mama’s Kitchen, 329W. Oltorf, Bessie Hinkle, Owner;
+Expert Alternations, Felicitas Contreras, Parishioner;
+Gold Slipper Shoe Repair, 1903 South 1st, Hernandez family, Parishioners;
+Tamales by Bargas, 2448 S. 1st., Mrs. Ruth U. Bargas;
+PJ’s Grocery, 915A W. Mary;
+Alex R. Morales Insurance, 1301 S. IH35, Suite 316;
+Robert’s Pool Hall, 2712 S. Lamar Blvd.;
+Eddie’s Optical, 1801 S. 1st Street;
+Transmission Specialists, 700 W. Jewell, Juan Flores;
+Hair Flair by Calderon, 500 W. Oltorf,Luis & Dolores Calderon;
+Oscar’s Uniforms, 2710 S. Lamra, Oscar Cazares, Parishioner;
+Mission Funeral Home, 1615 East 1st, Charles, Lois & Gilbert Villasenor, Robert Cisneros;
+Bettis Television & Appliances, 4313 Manchaca Rd.;
+Miracle Windshield Repair, 209 E. Ben White #211,Ernesto Madrigal;
+Mama’s Kitchen, 529 W. Oltorf, Bessie Hinkle;
+Ruiz Management Service, 3507 S. First Street;
+Emmaus Catholic Books & Gifts Co., 154 Hancock Center;
+Republic Bank South Austin, Congress at Oltorf;
+Mary Agnes Beauty Shop, 901 W. Mary, Mary Agnes Vasquez, Parishioner;
+Joe Prado Real Estate Broker, 3816 S. 1st Street;
+Ralph’s AC & Appliance Service, 2501 Montopolis Dr., Ralph D. & Stella Rivera;
+Valmon Jewelers, 531 W. Oltorf;
+Capitol Tailors, 104 E. Oltorf, Mary Lou & Eddie Ledesma;
+Catholic War Veterans, U.S.A., 4913 S. Congress;
+Clarence Guerrero & Sons Home Improvements;
+Complete Lawn Service, Ignacio Camario;
+Gabriel Gutierrez Jr. Attorney at Law, 61 N. IH35;
+Angel Funeral Home, 1181 S. Congress, the DeLeon Family;
+Panaderia Dos Hermanos, 2730 E. 1st Street, 503 W. Oltof;
+Matt’s El Rancho Inc., 303 E. 1st Street;
+Little Caesars’ Pizza, 512 W. Stassney Lane;
+Alberto Garcia Attorney at Law, 61 N. IH35;
 Thomas Esparza Jr. Attorney at Law
 
 #### 1987, July 5
 
-Hair Designers, 1914 Fortview Rd, Parishioners
-Eddie’s Optical, 1801 S. 1st.
-Transmission Specialists, 700 W. Jewell, Juan Flores
-Gifts, Etc., 109 W. 5th
-Expert Alternations, Felicitas Contreras, Parishioner
-Angel Funeral Home, 1181 S. Congress, the DeLeon Family
-The Howard Plan Burials, Bea Gutierrez, Agent
-Oscar Garcia Painting
-Gabriel Gutierrez Jr. Attorney at Law, 61 N. IH35
-Robert’s Pool Hall, 2712 S. Lamar Blvd.
-PJ’s Grocery, 915A W. Mary
-Mission Funeral Home, 1615 East 1st, Charles, Lois & Gilbert Villasenor, Robert Cisneros
-Oscar’s Uniforms, 2710 S. Lamar Blvd., Oscar Cazares, Parishioner
-Thomas Esparza Jr. Attorney at Law
-Clarence Guerrero & Sons Home Improvements
-Carmen’s La Tapatia, 1501 E. 6th Street
-Tamales by Bargas, 2448 S. 1st Street, Mrs. Ruth U. Bargas
-Emmaus Catholic Books & Gifts Co., 154 Hancock Center
-Hair Flair by Calderon, 500 W. Oltorf, Luis & Dolores Calderon
-River City Flea Market, 3700 S. Congress
-Ralph’s AC & Appliance Service, 2501 Montopolis Dr., Ralph D. & Stella Rivera
-Ruiz Management Service, 3507 S. First St.
-Catholic War Veterans, U.S.A., 4913 S. Congress
-Alex R. Morales Insurance, 1301 S. IH35, Suite 316
-Little Caesars’ Pizza, 512 W. Stassney Lane
-Valmon Jewelers, 531 W. Oltorf
-Joe Prado Real Estate Broker, 2606 S. 1st Street
-Republic Bank South Austin, Congress at Oltorf
-Matt’s El Rancho Inc., 2613 S. Lamar Blvd.
-Gold Slipper Shoe Repair, 1903 South 1st Street
-Turntable Records & Tapes, 507A W. Mary Street
-Alberto Garcia Attorney at Law, 61 N. IH35
+Hair Designers, 1914 Fortview Rd, Parishioners;
+Eddie’s Optical, 1801 S. 1st.;
+Transmission Specialists, 700 W. Jewell, Juan Flores;
+Gifts, Etc., 109 W. 5th;
+Expert Alternations, Felicitas Contreras, Parishioner;
+Angel Funeral Home, 1181 S. Congress, the DeLeon Family;
+The Howard Plan Burials, Bea Gutierrez, Agent;
+Oscar Garcia Painting;
+Gabriel Gutierrez Jr. Attorney at Law, 61 N. IH35;
+Robert’s Pool Hall, 2712 S. Lamar Blvd.;
+PJ’s Grocery, 915A W. Mary;
+Mission Funeral Home, 1615 East 1st, Charles, Lois & Gilbert Villasenor, Robert Cisneros;
+Oscar’s Uniforms, 2710 S. Lamar Blvd., Oscar Cazares, Parishioner;
+Thomas Esparza Jr. Attorney at Law;
+Clarence Guerrero & Sons Home Improvements;
+Carmen’s La Tapatia, 1501 E. 6th Street;
+Tamales by Bargas, 2448 S. 1st Street, Mrs. Ruth U. Bargas;
+Emmaus Catholic Books & Gifts Co., 154 Hancock Center;
+Hair Flair by Calderon, 500 W. Oltorf, Luis & Dolores Calderon;
+River City Flea Market, 3700 S. Congress;
+Ralph’s AC & Appliance Service, 2501 Montopolis Dr., Ralph D. & Stella Rivera;
+Ruiz Management Service, 3507 S. First St.;
+Catholic War Veterans, U.S.A., 4913 S. Congress;
+Alex R. Morales Insurance, 1301 S. IH35, Suite 316;
+Little Caesars’ Pizza, 512 W. Stassney Lane;
+Valmon Jewelers, 531 W. Oltorf;
+Joe Prado Real Estate Broker, 2606 S. 1st Street;
+Republic Bank South Austin, Congress at Oltorf;
+Matt’s El Rancho Inc., 2613 S. Lamar Blvd.;
+Gold Slipper Shoe Repair, 1903 South 1st Street;
+Turntable Records & Tapes, 507A W. Mary Street;
+Alberto Garcia Attorney at Law, 61 N. IH35;
 
 ### Advertisers in the Bazaar and Jamaica Programs
 
@@ -707,63 +707,121 @@ The Mexican Mission and San José Parish was a product of the Congregation of th
 ### Historical chronology of the Congregation of the Holy Cross in Austin
 
 1841		Rev. Edward Sorin and six C.S.C. brothers arrived in the US from France and traveled to Indiana.
+
 1842		The Bishop of the Diocese of Vincennes, Indiana offered rural land to F. Sorin if he would build a school.
+
 November 1842	Sorin and five C.S.C. brothers settled on the donated land and began a school.
+
 1844		The school, “The University of Our Lady of the Lake”, was chartered as a university for boys by the legislature as “The University of Notre Dame”. C.S.C. sisters opened St. Mary’s College nearby for girls.
+
 1844-1865 	Sorin was named the President of the University of Notre Dame.
+
 1847		The Vicariate of Texas was formed with F. Jean-Marie Odin as Apostolic Vicar in 1842. In 1847 the Diocese of Galveston was formed to include all of Texas with Bishop Jean-Marie Odin as its first bishop. San Antonio was formerly part of the diocese of Monterrey.
+
 1857		The Vatican approved the C.S.C. constitution for Brothers and priests. There were three congregations in the C.S.C. movement (priests, Brothers and Sisters).
+
 1857		The founder of the order designated the Sacred Heart of Jesus as patron of the priests; the pure heart of St. Joseph as the patron of the Brothers and the Immaculate Heart of Mary as patron of the Sisters (52).
+
 1857		Colonel W. L Robards, a member of St. Mary’s Parish in Austin, purchased 123 acres south of the river on the east side of and adjacent to the Austin-San Antonio highway (now Congress Avenue).
+
 1861		Rev. Jean-Marie Odin was appointed Bishop in New Orleans and left Galveston.
+
 1862		Rev. Claude Marie Dubuis was appointed Bishop of Galveston. The Diocese of Galveston had 50 churches and 84 priests.
+
 1865		The Vatican accepted the constitution of the congregation of Sisters, the Marianites of Holy Cross.
+
 1868 		Mr. Doyle, a member of St. Mary’s Parish in Austin, purchased 498 acres of farm land east of Col. Robard’s land and built a farmhouse.
+
 1871		His widow, Mrs. Mary Doyle, bequeathed 398 acres of the Doyle farm to the Catholic Church for use as a school. She advised Bishop Claude Marie Dubuis, the Bishop of Galveston, of this intended gift.
+
 1872		Col. Willis L. Robards died (50)
+
 1872		Bishop Dubuis offered an Austin parish to C.S.C.
+
 March 1872	Sorin, the retired President of Notre Dame University, and Bishop Dubuis of Galveston visited the Doyle farm.
+
 April 1872	Sorin purchased the Robard tract for $5,189 and gave a note to Mrs. Doyle of $995 for her 398 acres. She reserved one hundred acres of land east of this tract (50)
+
 February 1873 Mrs. Doyle died and the note for $995 was willed to Fr. Sorin.
+
 August 1874	The Diocese of San Antonio was created out of Diocese of Galveston with the Colorado River is the dividing line at Austin.
+
 1874, May 4	Holy Cross Fathers took over St. Mary’s church (138). Rev. Daniel J. Spillard, C.S.C., was the first C.S.C. pastor (139). Sisters of the Holy Cross took possession of the old rock school on East 10th Street (139).
+
 1874-1875	Two C.S.C. brothers and three C.S.C. sisters arrived to take possession of the Doyle farm (50).
+
 November 1875	The largest room in the Doyle farmhouse was converted into a chapel and a priest from St. Mary’s in Austin began celebrating Sunday Mass in the chapel.
+
 1878		The C.S.C. school began with three farm boys in a building on the Doyle farm (not the Doyle farmhouse) (50) (51).
+
 1883		The block on E. 7th to E. 8th and Brazos to San Jacinto was purchased for St. Mary’s Academy (139)
+
 1884, April 20		The new St. Mary’s church was dedicated by Bishop N. A. Gallagher of Galveston (139)
+
 1885		The school (St. Edward’s Academy) on the Doyle farm was chartered by the Legislature as St. Edward’s College (50). Rev. P.J. Francisus, C.S.C., was the first president (139).
+
 1889		The school was moved from the Doyle farm westward to the hilltop on Robard’s tract (its present location) (50).
+
 1885-1910	Two C.S.C. Brothers ran a school for boys at St. Mary’s Church. After 1910 the school was opened to girls.
+
 1891		There are 100 students and two C.S.C. Brothers at St. Edward’s College.
+
 1892		There are four priests, twelve Brothers and 140 boarders at St. Edward’s College.
+
 1893		Very Rev. Edward Sorin, C.S.C. died in Notre Dame, Indiana.
+
 1903		St. Edward’s main building burnt (50).
+
 1907		Two new churches were founded in Austin: St. Austin’s and Our Lady of Guadalupe (a national parish for the Spanish-speaking). Rev. John O’Keefe, C.S.C., was pastor of St. Mary’s (139).
+
 1907, April 7	Rev. Patrick O’Reilly, C.S.C., was working as a missionary to the Mexican community in downtown Austin.  Rev. Gallagher, Bishop of Galveston, dedicated a new Catholic chapel at the corner of Fifth and Guadalupe Streets (128).
+
 1907, December 9	Rev. Dr. Mejade of St. Edward’s preached the sermon in Castilian at Guadalupe Church. The pastor was Rev. F. J. O’Reilly (129).
+
 1911, May 26 and 27	The Daughters of Isabella, under Miss Josephine Theis, held a bazaar to pay off the building debt of Guadalupe Church (130).
+
 1921 			The student body of St. Edward’s is divided into college, high school and elementary grades along the model of a French boarding school. The curriculum included elementary (the "minims"), preparatory, and collegiate programs, as well as a manual training school (50).
+
 1923, February 14	Five of the sixteen members of the Board of Directors of the Catholic Home Mission Guild, werere Holy Cross Fathers: Rev. Angus MacDonald (Guadalupe), P.J. O’Reilly (Seton Infirmary), Michael Quinlan (St. Mary’s), Edward Burns (St. Mary’s) and Matthew Schumacher (St. Edward’s) (127).
+
 1923, February 25	Rev. Angus J. MacDonald, C.S.C., is the pastor of Iglesia de Nuestra Señora de Guadalupe, Austin, Texas (126). The church was full for both Sunday Masses with many people coming from outside of the city (127).
+
 1923, February	Rev. P. J. O’Reilly was pastor of Sacred Heart Chapel in east Austin where there was a box-car settlement. The chapel was a three-room shack. Prior to Easter, the chapel was moved to a tent on the 2300 block of East First Street (127). This chapel is now Cristo Rey Church.
+
 1924, December 4	The Bishop of Galveston informed Rev. Angus MacDonald that he has found two Oblate Fathers who will assume control of Guadalupe Church (131).
+
 1925 			Missionary Oblates of Mary Immaculate (OMI) take charge of Nuestra Señora de Guadalupe church at E. 9th and Lydia Street.
+
 1925			St. Edward’s received its charter as a university (51).
+
 1925			St. Edward’s is staffed by C.S.C. Brothers and priests. Sisters of the Presentation (exiled from France) served in the kitchen, laundry and infirmary from 1903-1935 (50) (51).
+
 1937, October 14	The cornerstone of Holy Cross Church for Negro Catholics was laid at 1608 E. 11th Street by Rev. Francis Weber (139).
+
 1939, July		Holy Cross Fathers including Rev. James Donahue, Rev. Fred Schmidt, Rev. Mendez and Rev. Culhane were working with Mexicans on the northern border of the San Antonio Diocese, including the Holy Cross Mission at Garfield (71).
+
 ~1939			F. Mendez, C.S.C. was conducting Spanish language services at St. Ignatius Church at 211 West Johanna Street in South Austin.
+
 1940			C.S.C. priests, Brothers and Sisters, including Alfred Mendez, Joseph Hauser, John Haley, Frank Weber, John Korcsmar, Gloria Rodriguez and James Donahue, founded churches in southern Travis County. Catechist Blanche Marie Richardson and Catechist Mary Salome Dorava (Our Lady of Victory Missionary Sisters) helped with the census (4).
+
 1940			Rev. James Donahue was assigned to follow-up a survey of Mexican farm workers living in Bastrop and Travis Counties. The two sisters from New Mexico performed the survey during the summer of 1940.
+
 1940, February 1	St. Ignatius Martyr church dedicated in South Austin with Rev. Patrick R. Duffy, C.S.C., as the first pastor (139).
+
 1945 	The South-West Providence of the C.S.C. was formed (50)
+
 1947, November 	The Diocese of Austin was formed from parts of the Dioceses of Galveston and San Antonio.
+
 1948, May 13		Rev. Louis J. Reicher was installed as Bishop of the Diocese of Austin at St. Mary’s Cathedral (139).
+
 1963, April		Rev. Houser said, “In 23 years of work at San José, the Congregation of Holy Cross has never received or asked for anything. Even that should not go on forever, since we have Seminarians to train and the sick and aged to care for” (223:04/28/63).  
+
 1969			The staff of St. Edward’s consists of Immaculate Heart of Mary Sisters, C.S.C. Brothers and priests and Dominican priests (50).
+
 1972	St. Edward’s University begins College Assistance Migrant Program for children of Mexican migrant farm workers (51) (49).
+
 1974, October		Bishop Alfredo Mendez was the celebrant at the 100th Anniversary Mass for the Holy Cross Fathers. Bishop Harris preached the sermon (250: 12/09/74).
+
 1985, July 21		San José Parish hosted the Golden Jubilee Mass and reception for Rev. Lawrence T. Bauer, Rev. Joseph F. Houser, Bishop Alfred F. Mendez and Rev. Francis R. Weber (223: 21/07/1985).  
 
 ### Historical chronology of individual C.S.C. Brothers and priests
@@ -771,26 +829,39 @@ November 1875	The largest room in the Doyle farmhouse was converted into a chape
 #### Lawrence Bauer
 
 1975	Lawrence Bauer acted as the administrator of San José Parish after Rev. Haley was reassigned. He was assisted by a Maryknoll Missionary, Rev. Michael Simone, M.M. (12) (58).
+
 1976, May	Rev. John Korscmar took over as pastor of San José (12) (143).
+
 1978, December	Korscmar was pastor at Holy Family Church in Copperas Cove, Texas (223:17/12/78).
 
 #### Santo J. Ciatto
 
 1963, January		Rev. Ciatto replaced Rev. Harold Hughes as Assistant Pastor of San José Church (223:02/03/63).
+
 1965, July 18		Rev. Edward F. Abstetar, C.S.C. was listed in the Sunday Bulletin as Rev. Ciatto’s replacement. Rev. Ciatto was sent to work at Sacred Heart Church in New Orleans (223:07/18/65). 	 
 
 #### Thomas Culhane
 
 1935		Culhane was ordained and sent to the missions at Andice, Bertram and Georgetown. He was also assigned to teach at St. Edward’s University (sainthelens.org/history).
+
 1936		Culhane was preparing to build a church at Andice with money from the Extension Society ($1,000) and help from Brother Jerome Steffes C.S.C.
+
 1937		Culhane was pastor of St. Helens in Georgetown. He and Rev. Frederick Schmidt C.S.C. lived in the rectory of St. Helen. Holy Cross Sisters were teaching CCD two weeks during the summer.
+
 1939, July	Culhane, Mendez and Fred Schmidt were working at the Mission at Garfield, near Marble Falls and near Buchanan Dam (71).
+
 1940		Culhane was sick and was replaced by Rev. Joseph Houser.
+
 1943		Rev. Peter Mueller CSC replaced Houser and in 1945 Culhane returned as pastor of St. Helens.
+
 1951		Culhane left St. Helens to be chaplain of a boy’s school in Indiana. He was replaced by Fred Schmidt until 1959.
+
 1964		Culhane retired and returned to Austin to live at Donahue House.
+
 1970		Culhane wrote articles for Catholic publications.
+
 1975, June 22	Thomas Culhane celebrated his 40th anniversary as a priest at St. Mary’s in Austin (223:22/06/75).
+
 1977, August 19	Culhane died (History of St. Helen) (sainthelens.org/history).
 
 #### Chas. Delaney
@@ -800,9 +871,13 @@ November 1875	The largest room in the Doyle farmhouse was converted into a chape
 #### James W. Donahue
 
 Prior to 1940	Rev. Donahue was Superior General of the Congregation of the Holy Cross (4).
+
 1940	After stepping down from his position, he moved to Austin where the C.S.C. had St. Edward’s University and three parishes (4).
+
 1940	Donahue asked the Superior General of the Missionary Catechists of Our Lady of Victory to send two Catechists for six months to take a census of Spanish-speaking families in rural areas near Austin, especially in Bastrop County (4). Donahue moved into the Holy Cross rectory with Brother Anthony Weber.
+
 1940 		Donahue was reassigned to a C.S.C. house in the East (4).
+
 1943, June 30		F. Donahue died at Notre Dame University (4).
 
 #### Joseph Devliegher
@@ -814,7 +889,9 @@ In 1990, he worked at St. Mary’s Cathedral and, in July, was assigned to San J
 #### James A. Donnelly
 
 1946, November 23	Rev. Donnelly explained to the Bishop why he should be appointed Assistant Pastor of St. Ignatius although he is working at San José. The confusion had to do with parish boundaries (46).
+
 1947, January 2	Donnelly was appointed Assistant Pastor of St. Ignatius Parish to help in the Mission of San José (46).
+
 1947, April 3		Donnelly was informed that he would be appointed Assistant Pastor of San José on April 6 when that parish becomes a valid national parish (46).
 
 #### Brother William Dunn
@@ -824,8 +901,11 @@ In 1990, he worked at St. Mary’s Cathedral and, in July, was assigned to San J
 #### Bob Gilmour
 
 Late 1960s and early 1970s	Rev. Bob Gilmour, C.S.C., served as Associate Pastor at San José, St. Ignatius and St. Mary’s churches.
+
 1974			He left St. Ignatius for Ghana, West Africa where he served for 14 years (223:10/07/1988).   
+
 1978, October		Rev. Bob Gilmour was in Africa when he asked for prayers from the people of San José (223:22/10/78).
+
 1988, July		He was diagnosed with cancer of the larynx and faced surgery (223:10/07/1988).
 
 #### Frank Grogan
@@ -835,8 +915,11 @@ Rev. Frank Grogan, C.S.C., was assigned to San José in August 1988 (223:28/08/1
 #### John Haley
 
 1941, June		Haley was raised in Pennsylvania and ordained in 1941 (122). He spent many years in Chile.
+
 1968, June		Haley was pastor of San José Church (122).
+
 1978, October		John Haley was pastor of San Francisco Church on Lockhart Highway (223:22/10/78) at 9110 Hwy. 183 South, Austin, 78747 (223:17/12/78).
+
 1987, December	John Haley died on Christmas Day. His funeral was at San Francisco Church on Dec. 28. San Francisco Church was his last parish assignment (223:04/01/1987).
 
 #### Anthony Houser
@@ -846,31 +929,49 @@ Anthony Houser was a Holy Cross Brother and brother of Rev. Joe Houser, C.S.C. H
 #### Joseph F. Houser
 
 1908, May 18	Rev. Houser was born in Youngstown, Ohio (120) (216).
+
 1922		He entered the seminary at Notre Dame high school in South Bend and earned a degree in Philosophy at Notre Dame University and Theology at Catholic University in Washington, D.C. (120).
+
 1926		He entered the novitiate at Notre Dame in July 1, 1926 and took his first vows on July 2, 1927. He graduated from university in 1931 (216).
+
 1935, June 24	Houser were ordained at Sacred Heart Church, Notre Dame (216) by Most Rev. John F. Noll, Bishop of Fort Wayne (220).
+
 1936		He earned a Master’s Degree in European History in 1936 (216).
+
 1936-1940	After teaching at Notre Dame for several years, he went to St. Edward’s University to teach European history, Latin and religion (120) (216).
+
 1939, May 7	Houser was pictured with a group of children after their first Communion on the grounds of St. Edward’s University (216).
+
 1939, August	Houser had a small chapel on the grounds of St. Edward’s (72).
+
 1940, May	He was 31years of age and a teacher and boarder at St. Edward’s (Census 1940)
+
 1940-1943	Houser assigned to St. Helen’s in Andice (Georgetown) (sainthelens.org/history) (120) (216) (220).
+
 1943-1946	Houser was a Vice-President at St. Edward’s University (216) and Vice-President of St. Edward’s Military Academy (1944 Austin City Directory)
+
 1946		After it was decided that C.S.C. Brothers would handle all administrative work at St. Edward’s, eight priests were transferred from St. Edwards (220). Houser was transferred to Christ the King College in Wilkes-Barre, Pa. (120) where he taught and served as treasurer and secretary (216).
+
 1948-1967	Houser returned to Austin as pastor of San José Church (120) (211) (216). He lived at 711 W. Mary (1952, 1953, 1954 and 1955 Austin City Directory)
+
 1958		A reporter noted that, “the children cling to him, the men admire him, and the women respect him. And they reflect his kindness in many ways” (220).
+
 1994		He retired to Holy Cross House in Notre Dame, Indiana (216).
+
 1997, June 25	Father Houser died at Holy Cross House in Notre Dame, Indiana (216). A memorial Mass was celebrated July 9, 1997 at San José church (216).
 
 #### John Korcsmar
 
 1990, October 20	Rev. Korcsmar spoke at the Catholic Evangelization ’90 event at Dolores Family Center (223:14/10/1990).
+
 1983, October		“El padre de Father John Korcsmar fallecio el pasado fin de semana (223:09/09/83).
 
 #### Angus J. MacDonald
 
 1923, February 25	Rev. MacDonald, pastor of Guadalupe Church, asked the permission of Rev. Christopher E. Byrne, Bishop of Galveston, to open a chapel in east Austin (126). He and the former pastor, Rev. P. J. O’Reilly, were on the Board of the Catholic Home Mission Guild of Austin (127)
+
 1924, December 4	The Bishop of Galveston informed Rev. MacDonald that two Oblate Fathers (OMI) would take over the Guadalupe Church (131).
+
 1925, January 1	The Missionary Oblates of Mary Immaculate took charge of Guadalupe church (135).
 
 #### Harold Hughes
@@ -879,30 +980,51 @@ Anthony Houser was a Holy Cross Brother and brother of Rev. Joe Houser, C.S.C. H
 
 #### Alfred Mendez
 ~1907			Mendez was born in 1907.
+
 ~1935			He lived in Washington, D. C. (Census 1940) and studied theology at Catholic University (120).
+
 1935			Mendez was ordained (sainthelens.org/history).
+
 1936		Mendez arrived at St. Edward’s to teach and take charge of the Mexican Missions in the Galveston Diocese. He was preparing to build a church at Andice (St. Rose of Lima) (sainthelens.org/history).
+
 1936-July 1939	Mendez worked for three years in the Galveston Diocese and built eleven missions (72) including St. Rose of Lima in Andice (sainthelens.org/history)
+
 1937 		Mendez was an instructor at St. Edward’s University (1937 Census).
+
 1937, January-November 	Mendez was sick (sainthelens.org/history)
+
 1937, November 		Mendez returned as pastor of St. Helen’s but lived in Austin (History of St. Helen) (sainthelens.org/history)
+
 1939, July		Schmidt, Mendez and Culhane were visiting Mexicans at Buchanan Dam, Marble Falls and the mission at Garfield (71). Mendez was assigned to Mexican Missions below the Colorado River in the Diocese of San Antonio (72).
+
 1939, August 		Mendez was a patient at Santa Rosa Hospital in San Antonio (42).
+
 1939, August 13	Father Mendez, writing from St. Edward’s University, suggested to Bishop Drossaerts a Mexican mission in south Austin. Mendez said there was a cluster of 45 to 50 Mexican families living close together (72).
+
 1939, August 15	The Archbishop of San Antonio wrote to Father Mendez and agreed to establish a “Mother Church” for Mexican Missions in South Austin (46).
+
 1940			Mendez was a boarder at home of Orin E. Metcalfe, a civil engineer, and wife Clara E. Mendez was President of Mexican Mission, aged 33, boarding at1204 Travis Heights Blvd. near E. Monroe Street in the home of Orin Metcalfe (1940 Census).
+
 1940, December 	He was boarding at St. Edward’s (1)
+
 1941			He was living at St. Edward’s and was pastor of St. Joseph’s Church (1941 Census).
+
 1944			He was Pastor of San Jose Catholic Church, living at 1906 Newton Street (City Directory 1944).
+
 1947, April 6		Mendez was appointed Pastor of San José Parish when it is erected as a national or language parish inside the boundaries of St. Ignatius Martyr Parish (46) (211).
+
 1947			He was Pastor of San José Church was living 1808 S. 6th Rear (1947 City Directory)
+
 1948			Rev. Mendez was transferred to Notre Dame. A few years later, he was named first Bishop of Diocese of Arecibo, Puerto Rico (211).
+
 1978			His mailing address was 203 E. 10th Street, Austin 78701 (223:17/12/78).
+
 1988, April 17		The pastor of San Jose Church said Bishop Alfred Mendez, the founder of San José Parish, just had a stroke and is partially paralyzed (223:17/04/1988).                            
 
 #### Michael Mikan
 
 1967, July 30		Rev. Mike Mikan, CSC, first appeared in the Sunday Bulletin with Rev. John Haley as replacements for Rev. Joseph Houser and Rev. Francis S. Bennett (223:07/30/67).
+
 1968, June		Mikan was Assistant Pastor of San Jose (122).
 
 #### Timothy R. Murphy
@@ -912,14 +1034,19 @@ Anthony Houser was a Holy Cross Brother and brother of Rev. Joe Houser, C.S.C. H
 #### Bruce Nieli, CSP
 
 1973, May 5	Nieli was ordained to the Missionary Society of Saint Paul Apostle (7).
+
 1972-1979	Nieli was Assistant Pastor, Saint Paul Apostle, New York and chaplain of the Juilliard School of Music (7). He graduated from Iona College, New York, in 1979 (7).
+
 1978-1983	He was Spiritual Director, Camino Hispanic Youth Movement, New York (7).
+
 1983-1986	He was a member Parish Bilingual Mission Team, Diocese of Galveston-Houston (7).
 
 #### Peter F. Mueller
 
 1940, May	Rev. Mueller was boarding and teaching at St. Edward’s, aged 25 (1940 Census)
+
 1943		Rev. Peter Mueller replaced Rev. Houser at St. Helen’s in Georgetown (sainthelens.org/history)
+
 1945		Rev. Culhane returned as pastor of St. Helens (sainthelens.org/history)
 
 #### O’Donnell
@@ -929,62 +1056,95 @@ Anthony Houser was a Holy Cross Brother and brother of Rev. Joe Houser, C.S.C. H
 #### John Payne
 
 1992, August		Rev. John Payne, C.S.C. was a former pastor of St. Ignatius Church. In August 1992, he lived at the rectory at St. Ignatius and helped part-time at San José (223:30/08/1992).
+
 1992, November	Father John Payne joined Rev. Fred Underwood as Associate Pastor of San José Church. He left San José around May 1993 (223:16/05/1993).
 
 #### Leonard Paul
 
 1989, June 25		Rev. Paul celebrated his 25th Anniversary of Priesthood at San Jose Church (223:25/06/1989).       	
+
 1989, July		Father Leonard Paul assumed his duties as Pastor of San Francisco Church. He was at San José for two years (223:02/07/1989).       	
 
 #### Patrick J. O’Reilly, the older
 
 1907		Patrick J. O’Reilley was a C.S.C. Missionary to Mexican colonias in downtown Austin in 1907 (42).
+
 1904		O’Reilley came to Austin in 1904 from Notre Dame University where he taught Spanish (sainthelens.org/history).
+
 1907, April 8		O’Reilly was pastor of the new Catholic chapel at the corner of Firth and Guadalupe when it was dedicated (128).
+
 1907, December 9	Rev. J. O’Reilly was pastor of Guadalupe Catholic Church (129).
+
 1910			He was Pastor of Guadalupe Church in 1910 (Austin City Directory 1910).
+
 1911, May 25		Father O’Reilly was pastor of the Mexican church (130).
+
 1920 	Father O’Reilly CSC began celebrating Mass in a tent/boxcar in Georgetown that was the home of Lola Cruz (sainthelens.org/history)
+
 1923, February	Father O’Reilly was on the Board of Directors of Catholic Home Mission Guild, Austin and Pastor of Sacred Heart Chapel (a mission for Mexicans in east Austin) and Chaplain of Seton Infirmary (127).
+
 1924, December	Angus MacDonald CSC was pastor of Guadalupe church (131).
 
 #### Patrick O’Reilly, the younger
 
 A younger man, Patrick J. O’Reilly, a Catholic Priest, was born 29 August 1895 in Dublin, Ireland and died 8 November 1966 in Temple, Bell County, Texas (Texas Death Certificate). He immigrated in 1916, attended seminary in Houston in 1920 (1920 Census) and began working in Georgetown in the 1920s (History of St. Helen). He served in Temple from 1930 to 1966 (Census records).
+
 1920	Patrick O’Reilly was an Inmate at St. Mary’s Seminary, Park Avenue, Harris County, Texas (1920 Census).
+
 1930	Patrick H. O’Reilly, age 34, born in Ireland, immigrated 1914, at Catholic Church in Temple, Bell Co., with four Teaching Sisters (1930 Census)
+
 1940	Patrick J. O’Reilly, age 45, was a priest at St. Mary’s Catholic Church, 1018 S. 7th, Temple, Bell Co. (1940 Census).
+
 1966, 8 November	Died in Temple, Texas, age 71, of heart failure, buried at Bellwood Memorial, Hewett Funeral Home
 
 #### Elmer Vincent Rupp
 
 1945	Rev. Elmer Rupp was assigned to St. Helen’s on his first assignment following his ordination.
+
 1948	Rupp was pastor in Burnet. He traveled to Mable Falls to say Mass in private homes (Catholic Spirit, June 2015) (203).
+
 1948, June-February 1952	Rupp was Assistant Pastor of San José church (223:06/07/70) and then was assigned to Marble Falls until 1954.
+
 1962	Rupp was pastor of San Francisco and Santa Cruz (6). He served as pastor of San Francisco Javier Church, Creedmoor, for 14 years (San Francisco Javier File, Catholic Archives of Texas).
+
 1970, June 7	Rupp celebrated his 25th anniversary of the priesthood at San Francisco (223:06/07/70).
+
 1975, December	Elmer Rupp served both San Francisco and San Cruz Churches and lived at San Francisco church (10).
+
 1978, May 23		Father Rupp passed away following an extended illness while he was pastor of Our Lady of Lourdes Church in Gatesville (St. Helen’s Catholic Church website).
 
 #### Fred A. Schmidt
 
 1937-1939	Rev. Culhane and Rev. Frederick Schmidt were living at St. Helen’s in Georgetown (sainthelens.org/history) (71).
+
 1939, July 20	He, Mendez and Culhane took charge of the Holy Cross mission church at Garfield (71)
- 1951		Father Culhane left St. Helens to be chaplain of a boy’s school in Indiana. He is replaced by F. Fred Schmidt (sainthelens.org/history).
+
+1951		Father Culhane left St. Helens to be chaplain of a boy’s school in Indiana. He is replaced by F. Fred Schmidt (sainthelens.org/history).
+
 1987, June 2	Fred Schmidt, C.S.C., celebrated 50 Year anniversary of his ordination at St. William’s Church in Round Rock (223:14/06/1987).
+
 1990, June	Father Schmidt was pastor of a mission in Ahuacatlán, Mexico (223:24/06/1990).
 
 #### Fred Underwood
 
 1923, July 23	Underwood born in Evansville, Indiana (118).
+
 1940, prior to	Underwood was promoted to Vice-President of Tri-State Contracting Co. (118).
+
 1941-1945	He was the pilot of a B-29 bomber in Army Air Corps (118).
+
 1948		He became a Holy Cross seminarian.
+
 1958, June 6	Underwood was ordained and assigned to St. Joseph’s in Killeen. He founded and directed the Volunteer Teachers Service and flew his own plane to recruit Catholic education majors (118).
+
 1962		Underwood was assigned to Dolores Church in Montopolis where he built a Community Center, a Day Care Center, Head Start program, Neighborhood Youth Corps (118) (223: 10/11/1985).
+
 1968		Underwood was named to the Provincial Council of C.S.C. Southern Province (118).
+
 1969		Underwood was named to Diocese of Austin Priests Senate (118).
+
 1993, April 12		Underwood left San José Parish after ten years as its pastor. He expected to travel in the Houston area giving renewals (223: 11/04/1993).
+
 1993, July	Shortly after leaving San Jose, a doctor discovered cancer in his prostate. He was scheduled for surgery on July 7 in a hospital in Houston and recovered (223:04/07/1993).
 
 #### Anthony Weber
@@ -994,17 +1154,29 @@ Anthony Weber was a C.S.C. Brother and the brother of Rev. Francis (Frank) Weber
 #### Frank Weber
 
 1906		Rev. Weber was born in 1906 and raised in Detroit.
+
 1935 		He was ordained at Notre Dame and assigned to teach at St. Edward’s.
+
 1935, fall	Assigned to work with African-Americans in East Austin. He celebrated Sunday Mass at a house on E. 11th Street and then at Tears’ Funeral Home (40).
+
 1936	Father Weber and a carpenter built the Holy Cross Church for a cost of $5,000 (40).
+
 1939- July 1940	He built a hospital with two part-time laborers.
+
 1940, summer		Three Missionary Sisters of the Immaculate Conception from Paterson, NJ, arrived to staff the hospital. Two African-American doctors and Sister Celine, M.D. were the doctors.
+
 1948		Father Weber helped Cliff Atwood, Elmer Rupp and Tony Weber built a 6,400 sq. ft., two-story rectory for San José church (40).
+
 1951, January 7	A new 50-bed, two-story masonry Holy Cross Hospital is opened at a cost of $600,000 (40).
+
 1952	Weber assigned to St. Mary’s in Lampasas (40)
+
 1954	Weber assigned to St. Joseph’s Church in Killeen where he personally built a two-story rectory in 1956 and the first school in 1958. A contractor completed the second church in 1960 (40)
+
 1968	Webber assigned to Holy Cross Church in Lafayette, Louisiana
+
 1978	Webber retired to St. Paul’s Church in St. Petersburg, Florida (40)
+
 1987, June 13, Saturday	An announcement in the San Jose Sunday Bulletin announced, “Carpenter Priest Goes Home”. Father Weber’s funeral Mass was at Holy Cross Church in Austin (223:21/06/1987).
 
 ## Boy Scout Membership Lists
@@ -1101,16 +1273,28 @@ Rachael Degollado set up an information table in the school for those interested
 
 ### Catholic Youth Organization Members
 
-1966, May		The membership list of the C.Y.O. was printed in the Sunday Bulletin of May 8, 1966. 56 names were on the list (223:08/05/66).
+#### 1966, May		
 
-1969, August 21	Rev. Bob Gilmour and Mrs. Joe Sanchez chaperoned the CYO convention (213) (223:08/17/69).
+The membership list of the C.Y.O. was printed in the Sunday Bulletin of May 8, 1966. 56 names were on the list (223:08/05/66).
 
-1972, March		Sylvia Segura, Lolly Vargas, Cindy Ortiz and Maggie Trejo were CYO members and sweetheart candidates (223: 12/03/72).
+#### 1969, August 21
 
-1972, June	The CYO scholarship fund winners were Miss Sylvia Luna ($300); Miss Carmen Castillo ($300); Mr. Edward Esquivel ($200); Joe Sosa ($200); Miss Terri Estrada ($150); Richard Moreno (($150) (223: 16/07/72).
+Rev. Bob Gilmour and Mrs. Joe Sanchez chaperoned the CYO convention (213) (223:08/17/69).
 
-1975, May 4	The following CYO members manned booths at the San Jose Church Bazaar at the Municipal Auditorium.
-Dart Booth
+#### 1972, March		
+
+Sylvia Segura, Lolly Vargas, Cindy Ortiz and Maggie Trejo were CYO members and sweetheart candidates (223: 12/03/72).
+
+#### 1972, June
+
+The CYO scholarship fund winners were Miss Sylvia Luna ($300); Miss Carmen Castillo ($300); Mr. Edward Esquivel ($200); Joe Sosa ($200); Miss Terri Estrada ($150); Richard Moreno (($150) (223: 16/07/72).
+
+#### 1975, May 4
+
+The following CYO members manned booths at the San Jose Church Bazaar at the Municipal Auditorium.
+
+##### Dart Booth
+
 Garza, Louie
 Torres, David
 Ortiz, Nancy
@@ -1118,19 +1302,22 @@ Barrientes, Roy
 Acosta, Cindy
 Requejo, Rosie
 
-Plate Booth
+##### Plate Booth
+
 Torres, Lorrie
 Leibas, Anna
 Ruiz, Christine
 Maldonado, Janie
 Perales, Dianna
 
-Jail House Booth
+##### Jail House Booth
+
 Salazar, Pepe
 Hernandez, Rudy
 Salas, Tomas
 
-Marriage Booth
+##### Marriage Booth
+
 Salazar, Zulema
 Guerra, Carla
 Samilpa, Loretta
@@ -1138,14 +1325,16 @@ Guardiola Becky
 Gonzales, Paul
 Vásquez, Diana
 
-Duck Booth
+##### Duck Booth
+
 Estrada, Carolyn
 Puentes, Kathy
 Maldonado, Yolie
 Samilpa, Mary Louise
 Martinez, Lily
 
-Clowns
+##### Clowns
+
 Ramirez, Rita
 Medrano, Nina
 Samilpa, Loretta
@@ -1160,11 +1349,14 @@ Guardiola, Becky
 Uriegas, Dolores
 Bustos, Gloria (237)
 
-1966
-Here is a list of those who belong to the C.Y.O.
+#### 1966
+
+Here is a list of those who belong to the C.Y.O.:
 Alvarez, Toni; Garcia, Judy; Gonzalez, Maria; Reyna, Carrey; Botello, Richard; Macias, Frank; Macias, Olivia; Vargas, Dolores; Garza, Linda; Ramos, Virginia; Ramos, Margaret; Juarez, Gilbert; Barrientos, Connie; Moreno, Sophie; Garcia, Jane; Garcia, Linda; Loera, Beatrice; Hernandez, Gabriel; Diaz, Gilbert; Galvan, Carolyn; Galvan, Judy; Galvan, Evelyn; Botello, Edward; Botello, Frank; Botello, Vivian; Govea, Esther; Tello, Rachael; Martinez, Irene; Martinez, Virginia; Moreno, Mary Ann; Casarez, Herlinda; Gonzalez, Mona; Resendez, Mary; Gonzalez, Paul; Ramos, Irene; Calderon, Henry; Ramirez, Robert; Álvarez, Benny; Varela, Johnny; Segura, Albert; Resendez, Rudy; Ruiz, Raymond; Garcia, Ramona; Sifuentes, Amelio; Reyes, Teresa; Calderon, Julian; Moreno, Paul; Alvarez, Robert; Moreno, Rudy; Calderon, Mario; Ybarra, Irene; Ybarra, Lupe; Quintanilla, Andrea; Garza, Estela; Flores, Leroy; Lopez, Eva (223:08/05/1966)
 
-1987, December	The Youth Group Sponsors and Chaperones were Steve and Mary Mireles, Rudy and Carolyn Duran, Jesse and Mary Baldazo, Joe and Henrietta Alcala, Carlos and Josie Samilpa, John and Sylvia Galvez, Ms. Mary De La Cruz, Mr. Frank Treviño and Mr. Jose Medrano (223: 27/12/1987).
+#### 1987, December
+
+The Youth Group Sponsors and Chaperones were Steve and Mary Mireles, Rudy and Carolyn Duran, Jesse and Mary Baldazo, Joe and Henrietta Alcala, Carlos and Josie Samilpa, John and Sylvia Galvez, Ms. Mary De La Cruz, Mr. Frank Treviño and Mr. Jose Medrano (223: 27/12/1987).
 
 ## Dance Bands
 
@@ -1191,87 +1383,157 @@ In 1983, lay organizations sponsored about one dance each month. In 1984 and 198
 The following dance bands performed at the San José Community Center between 1955 and 1985. The name of the band is followed by the years in which they played at San Jose. The information was taken from archived San José Sunday Bulletins.
 
 Agapito Zuniga 1974, 1975 (from Corpus Christi)
+
 Aguilillas, Los 1973
+
 Alfonso Ramos Orchestra/Orquesta 1971, 1975
+
 Augustine Ramirez 1968
+
 Cadettes, Los 1976 (from Linares, Nuevo Leon)
+
 Carinito (Conjunto Carinito) the Aguilar family 1982, 1983
+
 Carta Blanca, El Duerto 1974
+
 Cinco Reyes, Los 1982, 1984
+
 Dave Gutierrez Orchestra/Orquesta 1970, 1971
+
 Dave Linsey/Lindsey and the Music Makers
+
 Domingo Reyes and the Dynamics 1973
+
 Ebonies/Ebonys 1970
+
 Fabulosos Robles, Los 1984
+
 Fantasticos, Los 1970
+
 Flaco Jiménez 1971, 1973, 1975, 1976 (from San Antonio)
+
 Frank Flores 1973
+
 Frank Flores and Conjunto Alegre 1983
+
 Frank Nunez and the Imperials 1970, 1971
+
 Gairio,El Conjuncto 1976 (Killeen)
+
 Gilbert and The Blue Notes 1966 (from San Antonio)
+
 Grupo Alma 1984
+
 Grupo Inca 1982, 1983
+
 Hermano Rodriguez, Los (Hector and Aurelio) 1982, 1984
+
 Hermanos Aguirre de Durango 1984
+
 Hugo Gonzalez 1971
+
 Impressions (Ray Vazquez) 1970, 1971 (from Taylor)
+
 Isidro Lefty Lopez, 1984
+
 Jessie Duran and Los Aguilas 1971, 1976
+
 Johnny and Los Gallitos 1971
+
 Johnny and the Sensations 1971
+
 Johnny Degollado 1982, 1983, 1984
+
 Madrugadores, Los 1976 (Reynosa)
+
 Manny and the COs 1971, 1972,
+
 Manuel Castillo and Alegres Del Sur 1973, 1974
+
 Manuel Donnelly and Las Estrellas 1968, 1971
+
 Maria Tera y Sensation Tropical 1983
+
 Mexican Brass 1971
+
 Mike Saucedo 1970, 1971
+
 Nash Hernandez Orchestra 1955, 1970, 1971, 1972, 1975, 1976, 1983
+
 Nate Gutierrez and the Diamonds 1971
+
 New Breed 1970
+
 Paul Gonzalez 1984, 1985
+
 Pavos Reales, Los 1973, 1975
+
 Poquito Mas, Grupo 1983
+
 Ricardo Salaiza y Los Originales 1983
+
 Rudy Davila y Los Luceros Castro 1983, 1984, 1985
+
 Rudy/Ray Vasquez and the Chicanos 1971, 1972
+
 Rueben Sanchez Orchestra/Orquesta 1974
+
 Sandovales, Conjuncto Los 1974
+
 Santiago Jimenez 1982
+
 Savor, La Orchestra/Orquesta 1975
+
 Sonics 1970
+
 Soul Unlimited 1970, 1971
+
 Stardusters 1971
+
 Summerhill Band 1973, 1974
+
 Supersonicos del Ritmo, Los 1983, 1984
+
 Tim Torres Orchestra/Orquesta 1972, 1973, 1974, 1975, 1982
+
 Tremendos Gavilanes, Los 1975 (Juan y Salomon from Monterrey)
+
 Unicornio, 1985
+
 Verinos, El Conjuncto de Los 1975
+
 Viajeros Del Norte, Los 1984
 
 The following dance bands performed at the San Jose Community Center between 1955 and 1985. This list is in order of their popularity based on number of appearances at San Jose Community Center prior to 1985. The number in parenthesis is number of appearances.
 
 Nash Hernandez Orchestra (11)
 Genre: Big Band Swing and Latin; style: Orquesta
+
 Manny and the COs (11)
 Genre: Tex-Mex/Tejano; style: Orquesta
+
 Flaco Jiménez (6) Conjunto
-	Genre: Conjunto; style: Norteño and Tejano
+Genre: Conjunto; style: Norteño and Tejano
+
 Ray Vasquez and the Impressions (5)
+
 Johnny Degollado (5)
 Genre: Conjunto
+
 Dave Gutierrez y Su Orquesta (4)
 Genre: Tex-Mex
+
 Mike Saucedo, El Latin Image de (4)
 Genre: Latin; style: cumbia
+
 Manuel Donnelly Band (4)
+
 Tim Torres Orchestra (4)
-	Genre: Tejano; style: Orquesta
+Genre: Tejano; style: Orquesta
+
 Alfonso Ramos and Orchestra (3) Tejano
 Genre: Latin, folk, country; style: Orquesta
+
 Soul Unlimited (3)
 
 ### 1986 to 1993
@@ -1279,73 +1541,131 @@ Soul Unlimited (3)
 The following dance bands performed at the San José Community Center between 1986 and 1993. The name of the band is followed by the years in which they played at San Jose. The information was taken from archived San José Sunday Bulletins.
 
 Abraham Galvan DJ 1989
+
 Alma Tejana 1989
+
 Brown Boy James DJ 1990
+
 Ce-la-Vi 1988
+
 Cest La Vie 1987
+
 Commandos de Monterrey, Los 1986, 1992
+
 D. J. Dominque DJ 1990
+
 David Turner DJ 1990
+
 Davila, Leonard and the Street People 1986
+
 Déjà vu 1988
+
 Duran, Jessie y Beto y Los Aguilillas 1988
+
 Elvira Sanchez y La Suerte 1992
+
 Exitos, Los 1991
+
 Exo Band (El Grupo Exo) 1986
+
 Frank Sanchez y La Honda De Tejas 1990
+
 Gilbert Alba and Super City Bank 1988
+
 Grupo Alma 1987
+
 Grupo Ozten, El 1989
+
 Grupo Razones 1990
+
 Henry Zimmerle Conjuncto 1988
+
 Hermanos Cruz, Los 1992
+
 Iceman (Isaac Saenz) DJ 1990
+
 Johnny and the New Sensations 1989
+
 Johnny Degollado y Su Conjunto 1986, 1990, 1991
+
 La Diferencia, 1986, 1987
+
 Lil’ Louis B DJ 1990
+
 Martin “Hitman” DJ 1989, 1990
+
 Mike Saucedo and Turismo 1990
+
 Mojica DJ 1990
-Nash Hernandez 1990
+
+
 Niebla Blanca 1987
+
 Paul Gonzales and the Silver Express DJ 1986, 1987, 1988, 1989,
+
 Robert Ortiz 1986
+
 Rudy Duran Jr. DJ (Delightful Sounds) 1987, 1988, 1989, 1990
+
 Salaman DJ 1986, 1989
+
 Tim Torres 1991
-Turntable Records (Freddie Gonzales) 1990, 1992
+
 Viajeros del Norte, Los 1986, 1987
 
 The following dance bands performed at the San José Community Center between 1986 and 1993. This list is in order of their popularity based on number of appearances at San José Community Center. The number in parenthesis is number of appearances at San José.
 
+
 Rudy Duran Jr. DJ (12)
+
 Paul Gonzales DJ (7)
+
 Johnny Degollado y Su Conjunto (5)
+
 Turntable Records DJ (3)
+
 Los Commandos de Monterrey (2)
 
 The following list shows the total number of dances sponsored by San Jose and its organizations. Most dances were in the San Jose Community Center.
 
 Year	Number of dances
+
 1970	16
+
 1971	38
+
 1972	5
+
 1973	9
+
 1974	8
+
 1975	12
+
 1976	6
+
 1982	5
+
 1983	13
+
 1984	17
+
 1985	19
+
 1986	15
+
 1987	10
+
 1988	15
+
 1989	14
+
 1990	23
+
 1991	6
+
 1992	5
+
 1993	5
 
 Dance styles
@@ -1374,123 +1694,149 @@ The Knights of Columbus sponsored a Pre-Mother’s Day Dance on May 9, 1992 (223
 
 ## Jamaica Volunteers
 
-Calderon, Luis, President, Jamaica Committee 1966
-Herrera, Rufugio, VPresident, Jamaica Committee 1966
-Cortez, Reyes, Secretary, Jamaica Committee 1966
-Longoria, Tomas, Pro Secretary, Jamaica Committee 1966
-Castruita, Frank, Treasurer, Jamaica Committee 1966
-Reyna, Gonzalo, Pro Treasurer, Jamaica Committee 1966
-Maciel, Jose, Vocal, Jamaica Committee 1966
-Saucedo, Santos, Vocal, Jamaica Committee 1966
-Calderon, Julian, Vocal, Jamaica Committee 1966
-Mendez, Willie, Vocal, Jamaica Committee 1966
-Flores, Gabriel, Vocal, Jamaica Committee 1966
-Rocha, Irene, Participant, Jamaica 1966
-Soliz, Linda, Participant, Jamaica 1966
-Pacheco, Abigail, Queen Candidate, Jamaica 1966
-De Leon, Ema, Queen Candidate, Jamaica 1966
-Perez, Lupe, Queen Candidate, Jamaica 1966
+### 1966
+
+Calderon, Luis, President, Jamaica Committee 1966;
+Herrera, Rufugio, VPresident, Jamaica Committee 1966;
+Cortez, Reyes, Secretary, Jamaica Committee 1966;
+Longoria, Tomas, Pro Secretary, Jamaica Committee 1966;
+Castruita, Frank, Treasurer, Jamaica Committee 1966;
+Reyna, Gonzalo, Pro Treasurer, Jamaica Committee 1966;
+Maciel, Jose, Vocal, Jamaica Committee 1966;
+Saucedo, Santos, Vocal, Jamaica Committee 1966;
+Calderon, Julian, Vocal, Jamaica Committee 1966;
+Mendez, Willie, Vocal, Jamaica Committee 1966;
+Flores, Gabriel, Vocal, Jamaica Committee 1966;
+Rocha, Irene, Participant, Jamaica 1966;
+Soliz, Linda, Participant, Jamaica 1966;
+Pacheco, Abigail, Queen Candidate, Jamaica 1966;
+De Leon, Ema, Queen Candidate, Jamaica 1966;
+Perez, Lupe, Queen Candidate, Jamaica 1966;
 Escobedo, Anita, Queen Candidate, Jamaica 1966
-Ramirez, Rita, Queen, Jamaica 1967
-Shipp, Renee, Queen’s Court, Jamaica 1967
-Castruita, Nancy, Queen’s Court, Jamaica 1967
-Orta, Agapita, Queen’s Court, Jamaica 1967
-Perales, Roy, Chairman, Bazaar, 1968
-Samaniego, Paul, Volunteer, Jamaica 1978
+
+### 1967
+
+Ramirez, Rita, Queen, Jamaica 1967;
+Shipp, Renee, Queen’s Court, Jamaica 1967;
+Castruita, Nancy, Queen’s Court, Jamaica 1967;
+Orta, Agapita, Queen’s Court, Jamaica 1967;
+Perales, Roy, Chairman, Bazaar, 1968;
+Samaniego, Paul, Volunteer, Jamaica 1978;
 Samaniego, Mary, Volunteer, Jamaica 1978
-Rodriguez, Margarito, Chair, Jamaica Committee 1982
-Villalobos, Rosie, Jamaica Committee 1982
-Treviño, Joe, Jamaica Committee 1982
-Treviño, Frances, Jamaica Committee 1982
-Salazar, Romana, Jamaica Committee 1982
-Castillo, Rosie, Jamaica Committee 1982
-Saenz, Beeda, Jamaica Committee 1982
-Álvarez, Esmeralda, Jamaica Committee 1982
-Acuna, Bonnie, Jamaica Committee 1982
-Lara, Martha, Jamaica Committee 1982
-Castro, Aggie, Jamaica Committee 1982
-Samaniego, Paul, Volunteer, Jamaica 1982
-Tello, Christopher, King Candidate, Jamaica 1982
-Santa Ana, Stephanie, Queen Candidate, Jamaica 1982
-Navarro, Audrey Nicole, Queen Candidate, Jamaica 1982
-Garcia, Bernadette, Queen Candidate, Jamaica 1982
-Medrano, Daniel, King Candidate, Jamaica 1982
-Rodriguez, Andrea, Chair, Jamaica Committee 1982
-Roa, Rudy, Jamaica Committee 1982
-Jiménez, José, Jamaica Committee 1982
-Castro, Ray, Jamaica Committee 1982
-Samilpa Sr., Raymond, Jamaica Committee 1982
+
+### 1982
+
+Rodriguez, Margarito, Chair, Jamaica Committee 1982;
+Villalobos, Rosie, Jamaica Committee 1982;
+Treviño, Joe, Jamaica Committee 1982;
+Treviño, Frances, Jamaica Committee 1982;
+Salazar, Romana, Jamaica Committee 1982;
+Castillo, Rosie, Jamaica Committee 1982;
+Saenz, Beeda, Jamaica Committee 1982;
+Álvarez, Esmeralda, Jamaica Committee 1982;
+Acuna, Bonnie, Jamaica Committee 1982;
+Lara, Martha, Jamaica Committee 1982;
+Castro, Aggie, Jamaica Committee 1982;
+Samaniego, Paul, Volunteer, Jamaica 1982;
+Tello, Christopher, King Candidate, Jamaica 1982;
+Santa Ana, Stephanie, Queen Candidate, Jamaica 1982;
+Navarro, Audrey Nicole, Queen Candidate, Jamaica 1982;
+Garcia, Bernadette, Queen Candidate, Jamaica 1982;
+Medrano, Daniel, King Candidate, Jamaica 1982;
+Rodriguez, Andrea, Chair, Jamaica Committee 1982;
+Roa, Rudy, Jamaica Committee 1982;
+Jiménez, José, Jamaica Committee 1982;
+Castro, Ray, Jamaica Committee 1982;
+Samilpa Sr., Raymond, Jamaica Committee 1982;
 Cannon, Gloria, Jamaica Committee 1982
-Rodriguez, Margarito, Chair, Jamaica Committee 1983
-Castro, Ray, Chair, Jamaica Committee 1983
+
+### 1983
+
+Rodriguez, Margarito, Chair, Jamaica Committee 1983;
+Castro, Ray, Chair, Jamaica Committee 1983;
 Duran, Rudy, Chair, Jamaica Committee 1983
-Rodriguez, Dorothy, Jamaica Committee 1984
-Molina, Mary, Jamaica Committee 1984
-Ortiz, Jesse, Volunteer, Jamaica Committee 1984
-Lara, Salvador, Volunteer, Jamaica Committee 1984
-Cruz, Sabino, Volunteer, Jamaica Committee 1984
-Castro, Ray, Volunteer, Jamaica Committee 1984
-Rivas, Domingo, Volunteer, Jamaica Committee 1984
-Alviete, Felipe, Volunteer, Jamaica Committee 1984
-Samaniego, Paul, Volunteer, Jamaica Committee 1984
-Martinez, Jesse, Volunteer, Jamaica Committee 1984
-Martinez, Albert, Volunteer, Jamaica Committee 1984
-Calderon, Mike, Volunteer, Jamaica Committee 1984
+
+### 1984
+
+Rodriguez, Dorothy, Jamaica Committee 1984;
+Molina, Mary, Jamaica Committee 1984;
+Ortiz, Jesse, Volunteer, Jamaica Committee 1984;
+Lara, Salvador, Volunteer, Jamaica Committee 1984;
+Cruz, Sabino, Volunteer, Jamaica Committee 1984;
+Castro, Ray, Volunteer, Jamaica Committee 1984;
+Rivas, Domingo, Volunteer, Jamaica Committee 1984;
+Alviete, Felipe, Volunteer, Jamaica Committee 1984;
+Samaniego, Paul, Volunteer, Jamaica Committee 1984;
+Martinez, Jesse, Volunteer, Jamaica Committee 1984;
+Martinez, Albert, Volunteer, Jamaica Committee 1984;
+Calderon, Mike, Volunteer, Jamaica Committee 1984;
 Rodriguez, Margarito, Volunteer, Jamaica Committee 1984
-Navarro, Manuel, Chairman, Jamaica Committee 1985
-Castro, Ray, Chairman, Jamaica Committee 1985
-Rodriguez, Margarito, Chairman, Jamaica Committee 1985
-Duran, Rudy, Chairman, Jamaica Committee 1985
-Saldana, Anna Maria, Chairman, Jamaica Committee 1985
-Balderas, Victor, Chairman, Jamaica Committee 1985
-Navarro, Manuel, Coordinator, Jamaica Committee 1985
-Arredondo, George, Volunteer, Jamaica Committee 1985
+
+### 1985
+
+Navarro, Manuel, Chairman, Jamaica Committee 1985;
+Castro, Ray, Chairman, Jamaica Committee 1985;
+Rodriguez, Margarito, Chairman, Jamaica Committee 1985;
+Duran, Rudy, Chairman, Jamaica Committee 1985;
+Saldana, Anna Maria, Chairman, Jamaica Committee 1985;
+Balderas, Victor, Chairman, Jamaica Committee 1985;
+Navarro, Manuel, Coordinator, Jamaica Committee 1985;
+Arredondo, George, Volunteer, Jamaica Committee 1985;
 Arredondo, Becky, Volunteer, Jamaica Committee 1985
-Menchaca, Robert, Chairman, Jamaica Committee 1993
-Davila, Rufus, 1st Vice Chair, Jamaica Committee 1993
-Castillo, Rosie, 2nd Vice Chair, Jamaica Committee 1993
-Rocha, Vincente, Treasurer, Jamaica Committee 1993
-Rocha, Corrine, Treasurer, Jamaica Committee 1993
-Terrazes, Esther, Secretary, Jamaica Committee 1993
-Reyna, Robert, Jamaica Committee 1993
-Reyna, Margaret, Jamaica Committee 1993
-Estrada, Annie, Jamaica Committee 1993
-Reyna, Yvonne, Jamaica Committee 1993
-Menchaca, Avelia (Billie) T., Jamaica Committee 1993
-Baldera, Victor, Jamaica Committee 1993
-Finch, Sylvia, Jamaica Committee 1993
-DeLeon, Tony, Jamaica Committee 1993
-Govea, Linda, Jamaica Committee 1993
-Uríegas, Margaret, Jamaica Committee 1993
-Rivera, Renee, Jamaica Committee 1993
-Sabana, Anna, Queen Candidate, Jamaica 1993
-Olivares, Jo Ann, Queen Candidate, Jamaica 1993
-Ramos, Angelica, Queen Candidate, Jamaica 1993
+
+### 1993
+
+Menchaca, Robert, Chairman, Jamaica Committee 1993;
+Davila, Rufus, 1st Vice Chair, Jamaica Committee 1993;
+Castillo, Rosie, 2nd Vice Chair, Jamaica Committee 1993;
+Rocha, Vincente, Treasurer, Jamaica Committee 1993;
+Rocha, Corrine, Treasurer, Jamaica Committee 1993;
+Terrazes, Esther, Secretary, Jamaica Committee 1993;
+Reyna, Robert, Jamaica Committee 1993;
+Reyna, Margaret, Jamaica Committee 1993;
+Estrada, Annie, Jamaica Committee 1993;
+Reyna, Yvonne, Jamaica Committee 1993;
+Menchaca, Avelia (Billie) T., Jamaica Committee 1993;
+Baldera, Victor, Jamaica Committee 1993;
+Finch, Sylvia, Jamaica Committee 1993;
+DeLeon, Tony, Jamaica Committee 1993;
+Govea, Linda, Jamaica Committee 1993;
+Uríegas, Margaret, Jamaica Committee 1993;
+Rivera, Renee, Jamaica Committee 1993;
+Sabana, Anna, Queen Candidate, Jamaica 1993;
+Olivares, Jo Ann, Queen Candidate, Jamaica 1993;
+Ramos, Angelica, Queen Candidate, Jamaica 1993;
 Ortiz, Erica, Queen Candidate, Jamaica 1993
-Martinez, Gonzalo, Jamaica Committee 2001
-Miranda, Christina, Jamaica Committee 2001
-Rodriguez, Juan, Jamaica Committee 2001
-Tapia, Jose, Jamaica Committee 2001
-Espinoza, Raul, Jamaica Committee 2001
-Freitas, Cecil, Jamaica Committee 2001
-Prado, Irma, Jamaica Committee 2001
-Cortinas, Elisa, Jamaica Committee 2001
-Mendez, José, Jamaica Committee 2001
-Mendez, Lucia, Jamaica Committee 2001
-Stockdale, Theresa, Jamaica Committee 2001
-Moreno, David, Jamaica Committee 2001
-Cardenas, Nina, Jamaica Committee 2001
-Garza, Prescilla, Jamaica Committee 2001
+
+### 2001
+
+Martinez, Gonzalo, Jamaica Committee 2001;
+Miranda, Christina, Jamaica Committee 2001;
+Rodriguez, Juan, Jamaica Committee 2001;
+Tapia, Jose, Jamaica Committee 2001;
+Espinoza, Raul, Jamaica Committee 2001;
+Freitas, Cecil, Jamaica Committee 2001;
+Prado, Irma, Jamaica Committee 2001;
+Cortinas, Elisa, Jamaica Committee 2001;
+Mendez, José, Jamaica Committee 2001;
+Mendez, Lucia, Jamaica Committee 2001;
+Stockdale, Theresa, Jamaica Committee 2001;
+Moreno, David, Jamaica Committee 2001;
+Cardenas, Nina, Jamaica Committee 2001;
+Garza, Prescilla, Jamaica Committee 2001;
 Robledo, Melinda, Jamaica Committee 2001
-Orozco, Eddie, Jamaica Committee 2011
-Orozco, Christine, Jamaica Committee 2011
-Rodríguez, Gilbert, Jamaica Committee 2011
-Rodríguez, Tina, Jamaica Committee 2011
-Cruz, Gloria, Jamaica Committee 2011
-Cruz, Victor, Jamaica Committee 2011
-Tristan, Jesse, Jamaica Committee 2011
-Pérez, Anita, Jamaica Committee 2011
-Urban, David, Jamaica Committee 2011
+
+### 2011
+
+Orozco, Eddie, Jamaica Committee 2011;
+Orozco, Christine, Jamaica Committee 2011;
+Rodríguez, Gilbert, Jamaica Committee 2011;
+Rodríguez, Tina, Jamaica Committee 2011;
+Cruz, Gloria, Jamaica Committee 2011;
+Cruz, Victor, Jamaica Committee 2011;
+Tristan, Jesse, Jamaica Committee 2011;
+Pérez, Anita, Jamaica Committee 2011;
+Urban, David, Jamaica Committee 2011;
 Urban, Linda H., Jamaica Committee 2011
 
 1984, March	The Pastor wrote, “Varias persona que les hemos dado las gracias en el Buletin Semanal por su trabajo, etc., en y por la Parroquia, nos han pedido que ya no lo hagamos. Por esta razon, de aqui en adelante le daremos las gracias nada mas a persons que ocasionallmente, have algo especial por la parroquia. Pero, nosotros agradecemos bastante a todos Ustedes que estan trabajando tan duro y tan fielmente cada semana por nuestra Familia de San Jose (223:25/03/84).
