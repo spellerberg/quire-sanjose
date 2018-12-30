@@ -10,11 +10,19 @@
 
 // Variables
 // -----------------------------------------------------------------------------
+$color-primary: #3273dc !default;
+$dark: #363636 !default;
+$light: #f5f5f5 !default;
 
-$quire-entry-image-color: $dark !default;
-$quire-entry-image-icons-color: findColorInvert($quire-entry-image-color) !default;
+$navbar-height: 3rem !default;
 $quire-entry-header-height: 6rem !default;
 
+$quire-entry-image-color: $dark !default;
+$quire-entry-image-icons-color: $white !default;
+$quire-page-link-color: $color-primary !default;
+
+
+// .quire-entry
 // -----------------------------------------------------------------------------
 .quire-entry {
   &__image {
@@ -24,6 +32,22 @@ $quire-entry-header-height: 6rem !default;
     display: flex;
     align-items: center;
     justify-content: center;
+
+    @media print {
+      background-color: transparent;
+      @include foreground-color(#fff,$page-text-color);
+    }
+
+    &__group-container {
+      @media print {
+        figure {
+          display: none;
+        }
+        figure:first-of-type {
+          display: block;
+        }
+      }
+    }
 
     &__group-container,
     figure {
@@ -58,6 +82,29 @@ $quire-entry-header-height: 6rem !default;
         border-radius: 3px;
         z-index: 1;
         height: auto;
+        @media print {
+          background-color: transparent;
+          display: block;
+          font-size: 9pt;
+          line-height: 14pt;
+        }
+        &__caption {
+          display: inline-block;
+          font-size: 1rem;
+          margin-bottom: 1rem;
+          @media print {
+            display: block;
+            font-size: 9pt;
+            line-height: 14pt;
+          }
+        }
+        &__credit {
+          @media print {
+            display: block;
+            font-size: 7.5pt;
+            line-height: 14pt;
+          }
+        }
       }
 
       &--more {
@@ -79,6 +126,7 @@ $quire-entry-header-height: 6rem !default;
       &--prev-image {
         top: calc(50% - 2.25rem);
         left: 0;
+        right: initial;
         border-left-width: 0;
         border-top-left-radius: 0;
         border-bottom-left-radius: 0;
@@ -87,6 +135,7 @@ $quire-entry-header-height: 6rem !default;
       &--next-image {
         top: calc(50% - 2.25rem);
         right: 0;
+        left: initial;
         border-right-width: 0;
         border-top-right-radius: 0;
         border-bottom-right-radius: 0;
@@ -107,18 +156,23 @@ $quire-entry-header-height: 6rem !default;
   }
 
   &__header {
-    height: $quire-entry-header-height;
     margin-bottom: 3rem;
-    padding-bottom: 1.5rem;
-    padding-top: 1.5rem;
+    padding-top: .25rem;
+    @media print {
+      height: 3in;
+      text-align: center;
+      // This border is a hack for PrinceXML which doesn't 
+      // otherwise recognize the box sizing for some reason
+      border: 1pt solid transparent;
+    }
   }
 
   &__tombstone {
     padding-top: 0;
     svg {
       position: relative;
-      height: 1.5em;
-      width: 1.5em;
+      height: 1.25em;
+      width: 1.25em;
       margin-left: .5em;
       fill: $quire-page-link-color;
       & img {
@@ -127,6 +181,10 @@ $quire-entry-header-height: 6rem !default;
         left: 0;
         max-height: 1.5em;
       }
+    }
+    @media print {
+      font-size: 9pt;
+      margin-bottom: .125in;
     }
   }
 

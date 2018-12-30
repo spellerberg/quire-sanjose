@@ -1,6 +1,6 @@
 ---
 title: Environment
-weight:1300
+weight: 1300
 type: essay
 ---
 

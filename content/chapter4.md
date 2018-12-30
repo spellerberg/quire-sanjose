@@ -1,5 +1,5 @@
 ---
-title:San José Parish Sodalities and Societies, A-L
+title: San José Parish Sodalities and Societies, A-L
 weight: 500
 type: essay
 ---

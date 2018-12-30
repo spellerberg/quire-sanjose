@@ -1,5 +1,4 @@
 ---
-title: Events
 title: Missions of San Jose
 weight: 200
 type: essay

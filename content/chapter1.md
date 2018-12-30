@@ -3,6 +3,7 @@ title: Mexican Mission
 weight: 100
 type: essay
 ---
+
 ## Mexican Austin, 1900-1939 and the Origins of San José Catholic Church, Austin
 
 ### Colonia of West Austin

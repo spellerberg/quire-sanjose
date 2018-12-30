@@ -1,5 +1,5 @@
 ---
-title:Community and Service Organizations
+title: Community and Service Organizations
 weight: 700
 type: essay
 ---

@@ -1,5 +1,5 @@
 ---
-title:San Jose Parish Equipment and Grounds
+title: San Jose Parish Equipment and Grounds
 weight: 400
 type: essay
 ---
